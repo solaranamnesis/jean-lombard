@@ -238,4 +238,68 @@ L'homme rougeaud leva la tête.
 
 Et il quitta prestement le tour qui eut un fort sifflement. Les deux autres s'arrêtèrent.
 
+Le potier alla ouvrir au vieillard, qui étendit la main vers tous et marmonna quelques paroles. Ils s'étaient agenouillés, puis ils se relevèrent pendant que Maglo s'asseyait sur un escabeau, soucieux, fatigué.
+
+--- Père, tu as mangé ? fit le potier, le regardant émotionnément et l'entourant avec la sollicitude d'un fils. Maglo répliqua :
+
+--- Oui ! Oui ! J'ai mangé, je suis repu ! ...
+
+Ils gardaient tous trois, sans l'interrompre, un respect attendri. Le menton appuyé à son bâton, le vieillard fixait ses yeux à terre :
+
+--- Avoir traversé les Gaules et l'Italie, couru sur des fleuves, franchi des monts, risqué ma vieillesse, souffert de la faim, du froid, de la chaleur, des coups, des injures, des railleries, pour voir Rome, et tomber dans son fumier. C'est dur, dur !
+
+Il se redressait, la taille haute, le geste anguleux, le bâton pointant vers Rome :
+
+--- Je le prédis, je le prédis ! Si nul ne la détruit, la prostituée qui se livre aux fils de l'Orient, c'en est fait. Sa pourriture s'étendra sur la terre, et malheur, malheur à tous !
+
+Les autres tressaillaient. Mais Ghéel serrait doucement le poing du vieillard, le forçait à s'asseoir, et, volubile :
+
+--- Oui, nous la détruirons, père. Nos frères deviennent de plus en plus nombreux, mais il nous faut du temps, pour activer le feu qui la consommera tout à fait !
+
+Et il riait tranquillement, et les autres faisaient chorus, comme s'ils eussent voulu tranquilliser le nouveau venu, qui reprenait :
+
+--- Qu'est ce quartier où des prostituées appellent les passants ? J'ai vu un homme mettre en nudité une femme. J'ai vu des adolescents carresser des libertins et se polluer avec. J'ai vu de vieilles femmes partager leur couche avec des impubères. C'est la fin des fins, de quoi faire se voiler la face du soleil.
+
+--- Tu as traversé la Voie Suburane ? dit timidement le potier.
+
+--- Cette Voie est la voie de perdition, reprit vivement Maglo. Mettez le feu à cet afflux de pourriture qui gangrènera les nations !
+
+--- La catéchisation se poursuit, Père, assura Ghéel après un silence, pour mettre un peu d'apaisement dans l'âme du vieillard, dont les colères commençaient à l'interloquer. Nous sommes nombreux, à Rome, qui voulons l'avènement de l'Agneau et augurons beaucoup du nouvel empire, né en Orient, qui va préparer les cœurs à Kreistos.
+
+--- L'Orient, l'Orient, s'exclama Maglo, est-ce pas Babylone ?
+
+--- Et Babylone, c'est Rome, répondit Ghéel en reprenant son sourire. Nous avons des pauvres et des prostituées qui sont misérables.
+
+Le vieillard sursauta.
+
+--- On me l'avait bien dit, on me l'avait bien dit, gémit-il. Vous autres, de Rome, vous vous ouvrez aux fruits gâtés qui vous pourriront.
+
+--- Nous prenons la semence où elle se trouve, qu'importe, dit Ghéel. Vois mes ouvriers : Lixio est un Phrygien, condamné à la crucifixion pour meurtre de son maître ; Gangus est un Campanien que le procurateur recherche pour vol. Ils se sont échappés des magistrats et je les ai gardés : ils n'ont rien à craindre ici. Ce sont des Frères.
+
+Maglo regardait fixement Lixio et Gangus. Ghéel reprit, à la fois humble et assuré :
+
+--- Et moi-même, né en Syrie, n'ai-je pas été plus loin que l'Euphrate, séparé de mon frère Madeh, mort ou esclave, qui sait, et ne suis-je pas sous le pouvoir des lois de l'Empire pour avoir incendié une ville ? ...
+
+--- Hélas ! hélas ! fit alors Maglo qui se tut.
+
+En lui revenaient des rêves de pureté qui le traversèrent clairement dans sa caverne des Alpes, devant le décor neigeux des montagnes, les horizons bleus, les froides eaux s'égouttant des ravins où l'arbouse saigne son fruit rugueux, où l'airelle recouvre des nichées de prestes lézards. Sa vieillesse l'avait gardé vierge, avec, sous les yeux, une image puissante de la Maya, figée en son cerveau par une transmission héréditaire d'Helvètes scandinaves, ses ancêtres, et, au-dessus, la face pâle de l'Homme Divin, du pied écrasant les sept têtes du Péché : la luxure, la fornication, le viol, la bestialité, la sodomie, l'adultère et le stupre. La renommée de sa sainteté avait descendu le Rhône par Lyon, traversé la mer et frappé aux portes de Rome, d'où les sectateurs de Kreistos l'appelaient. Et, recommandé à Ghéel par un fidèle de là-bas, il était venu, désireux de ne pas mourir sans voir Rome, pour que plus vive encore fût sa foi. Mais quelle désillusion depuis.
+
+--- Tu resteras ici, disait Ghéel, avec un sourire heureux. Je vais faire préparer ta couche, car tu es chez les tiens.
+
+A ce moment, la porte de claie s'ouvrit. Maglo s'écria :
+
+--- Elle ! perdition. Elle que j'ai vue ce matin.
+
+Roide et farouche, il voulut s'en aller, quand une petite main enveloppante s'empara de la sienne, la baisa tendrement.
+
+--- Oui, je sais, c'est toi qui passas devant ma porte et que j'appelai. Mais qu'importe ! Ghéel me dit que je suis pardonnée.
+
+Maglo se troublait, dégelé ; il traça machinalement le signe du crucifiement sur la tête de celle qui se jetait à lui : une jeune femme, coiffée d'une courte mitra, les cheveux tirés vers les tempes, les sourcils rapprochés par un trait noir, des anneaux de bronze aux oreilles, les seins ballants sous une subucula de toile jaune clair, une ceinture haute, des sandales lacées au milieu du mollet découvert, et qui avait aux joues une couche de blanc crayeux. Une fibule d'argent --- une tête de Méduse --- fixait à son épaule une palla simplement ouverte sous l'aisselle gauche.
+
+--- Assez, assez, Cordula, cria sévèrement Ghéel qui s'aperçut de l'embarras de Maglo.
+
+Et Cordula, confuse, se leva, non sans approcher du nez de Ghéel un sachet carré d'étoffe.
+
+--- Odore ! C'est un homme qui me l'a donné. On dirait du myrrhe et de la verveine.
+
 ...
