@@ -8,7 +8,7 @@
 
 #### Première Édition, 1888.
 
-#### Paris, 1901.
+#### Paris, 1902.
 
 ##### Société d'Éditions Littéraires et Artistiques.
 
