@@ -330,4 +330,40 @@ Les chrétiens s'inclinèrent devant celle-là qui avait prononcé ces paroles, 
 
 Celui-là, qui était grand, maigre et d'âge de maturité --- quarante ans --- avait une tunique noire, les cheveux mal coupés, la face rasée d'un homme travaillé de secrètes passions. La voix coupante, il dominait généralement un certain monde de chrétiens auxquels il parlait dogmatiquement, les yeux fermés, le menton haut sur un col roide, jusqu'à présent, assez dédaigneux de ce que d'autres religionnaires pensaient et disaient de lui. Car, si ceux-là l'affirmaient savant dans l'Apologétique et homme de pensées larges, ils ne craignaient pas d'amener parfois au jour une tare de fausse christianisation qui faisait d'Atta --- ainsi le nommait-on --- en dehors des assemblées et des réunions intimes des fidèles, une sorte de misérable et besoigneux parasite flattant les grands, vendant la Foi pour quelques auréus et même quelques bouchées de pain et de sardines. Cependant, il se gardait de ces accusations, non encore formulées brutalement, et, pour mieux se défendre, se montrait partisan de l'église officielle des chrétiens politiques, riches, adroits, ne s'entremettant que de loin, sous le regard de l'évêque de Rome, Calliste, et, avant Calliste, Zéphirinus, avec les églises plus humbles, modestes, attendries, fraternisantes dans lesquelles se comptaient ceux qui étaient chez Ghéel et Ghéel lui-même.
 
+Ces églises se mouvaient en une sorte d'indécision de la Doctrine, une très libre et élastique allure qui les faisait pratiquer certains rites du polythéisme ou du moins accepter certaines idées encore polythéistes en la force divine, résumée pour elles en Kreistos. Beaucoup s'agrégeaient par nations, et c'était justement ce qui les différenciait des communautés politiques au* caractère plus prononcé d'internationalité. A part Severa, épouse romaine d'un patricien qui, depuis de longues années, s'était séparée de l'empire et des empereurs, et qu'un attrait, disait-on ingénument, poussait vers Zal par Kreistos ; à part Atta, de haute lutte s'imposant parmi eux dans un but peut-être d'intime domination, ceux que la présence de Maglo réunissait chez Ghéel étaient Orientaux, de la Perse et de la Phrygie, du Pont et de la Chaldée, et, tels ressentaient des affinités encore inavouées, mais tangibles, pour le nouvel Empire, dont le jeune et prestigieux chef allait, le lendemain, faire son entrée à Rome. Et c'est ce dont ils causèrent tous. Zal, surtout, prétendait préférer Elagabalus et ses corruptions, la Pierre-Noire dont l'ombre se levait sur l'horizon romain, et ses prêtres, aux empereurs polythéistes qui, à son grand souci, ne dissolvaient pas assez le monde. Kreistos naîtrait de la pourriture d'Elagabalus et non de la saine et robuste vie des dieux des autres ! Il disait cela ardemment, hardiment, les yeux sur lui attachés de Severa, pendant que Maglo branlait du chef, assis, son gros bâton entre les jambes, et qu'Atta promenait un air inquiet, circulaire de Ghéel aux autres chrétiens, et par instant regardait sévèrement Zal maintenant noyé dans du soleil.
+
+Venu de trop loin pour être rapidement au courant des théories de Zal, Maglo dévia la discussion par une affirmation de la substance du Fils de l'homme, idée qui lui paraissait très chère. Une controverse éclata. Les uns voulaient que le Kreistos fut un être incorporel comme l'homme ; d'autres en faisaient un pur esprit : Ghéel avança timidement que le Kreistos et son Père étaient la synthèse irréductible de tous les dieux. Mais Maglo se boucha les oreilles et se leva, dominant encore les tuniques pauvres des chrétiens, tournées vers lui :
+
+--- Blasphème ! L'Agneau, séparé de son Père, est son égal en puissance. Je l'ai bien vu, moi, Maglo, avec ses sept plaies saignantes, le Père, maître du tonnerre et des biens à sa droite, et l'Esprit à sa gauche.
+
+Atta lui répondit, de son air rogue, de sa voix supérieure qui semblait dédaigner d'obscurs auditeurs :
+
+--- Tout doit se résorber en la seule divinité de Kreistos. L'idée trinitaire, glorifiée par Maglo, est dangereuse en ce qu'elle rappelle le culte des faux dieux de l'Egypte.
+
+Et comme Maglo, touché dans sa sainteté, prenait une apparence pitoyable, il avança que les questions de dogme devaient être laissées aux dignitaires des églises assemblées. Mais Zal se révolta, n'acceptant point que la direction des esprits fût livrée à des dignitaires dont la foi était peu sûre :
+
+--- L'Esprit souffle où il peut. L'homme est faillible ; nous ne pouvons permettre d'abandonner ces discussions au gré de ses passions.
+
+Il rejetait toute autorité, en une brutalité visant ostensiblement Atta qui, méprisant et hypocrite, lui décocha une flèche vénéneuse.
+
+--- Prends garde, Zal, que cet esprit ne soit le Démon ! Zal bondit et lui montra le poing :
+
+--- Le Démon est en toi, en toi l'impur, qui caches ta bassesse sous une fausse sainteté.
+
+Et il semblait vouloir le frapper, indigné, mâchonnant ce qui se disait d'Atta depuis longtemps, son parasitisme, ses vices secrets, ses fréquentations suspectes avec les Gentils. Mais on se leva tumultueusement ; on les sépara. Atta était blême :
+
+--- Je te ferai retrancher des Fidèles !
+
+--- Je dénoncerai ton hypocrisie à tous !
+
+Furieux, Atta sortit, non sans jeter ces mots à Zal, vers qui Severa s'était portée, en une émotion qui rosit tout à coup sa face aux lignes droites :
+
+--- Malheur, malheur, malheur à toi !
+
+Chacun frémissait encore de la scène qui avait si brusquement mis fin à la controverse soulevée par Maglo. Zal ne disait plus rien. Maglo promenait ses mains maigres dans sa barbe fluctuante et, inquiètement, regardait les Fidèles. Mais ceux-ci, Zal et Severa avec, s'en allèrent. Il ne resta que Ghéel, ses ouvriers et Maglo, muets.
+
+# 5\.
+
+Un grand bruit dans la région transtévérine, un bruit de foule hurlante, un galop d'hommes et de femmes courant vers le pont Sublicius ! Des enfants grouillant en des immondices s'effaraient, pendant qu'à des ouvertures de fenêtres, des têtes se poussaient, curieuses, et que, de frayeur, des tavernes basses, à un seul auvent, se fermaient. On criait les divers noms d'Elagabalus, à la fois Antoninus, parce que sa mère, Sœmias, assurait l'avoir eu d'Antonin ; Bassianus, Varius, Avitus, le Syrien.
+
 ...
