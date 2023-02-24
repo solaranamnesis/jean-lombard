@@ -302,4 +302,32 @@ Et Cordula, confuse, se leva, non sans approcher du nez de Ghéel un sachet carr
 
 --- Odore ! C'est un homme qui me l'a donné. On dirait du myrrhe et de la verveine.
 
+Et elle s'enfuit, laissant comme la trace d'une apparition jaune d'or dans un subtil parfum de verveine et de lupanar.
+
+Ghéel était devenu tout rouge et il balbutiait :
+
+--- Est-ce qu'on peut retenir ces femmes ? Il leur faut être bon et indulgent, car elles vous aiment, et Kreistos n'est pas ennemi de l'amour.
+
+--- Et tu les aimes, tu aimes leur chair, dit Maglo, n'osant éclater.
+
+Des voix mêlées bruirent. Et une douzaine d'hommes et de femmes pénétrèrent dans la poterie, qui se prirent la main et se baisèrent cérémonialement sur une joue. Ils venaient pour Maglo, qu'ils savaient devoir arriver ce jour-là chez Ghéel, où ils se réunissaient souvent, étant tous des chrétiens qu'une même communion solidarisait dans une exquise fraternité, cependant parfois troublée par des discussions divergentes de dogmes.
+
+Lixio et Gangus avaient arrêté leur labeur : Ghéel fit asseoir les religionnaires sur des escabeaux bas, tressés avec de l'osier du Tibre voisin, au milieu des blocs d'argile et des vases, où du soleil poudroyait en une descente d'or immatérialisée. Comme, après l'avoir baisé sur ses joues de parchemin sec, ils le suppliaient de parler, Maglo, lentement, les yeux rouges, la voix encore pleinement sonore, les entretint des églises chrétiennes de la Gaule, par lui visitées après son départ de l'Helvétie. Mais si, là-bas, la propagation était très épineuse, grâce à certaines populations hostiles à l'Agneau, combien Rome le scandalisait, avec ses lupanars ouverts à tous, les vices de ses habitants, qui se répandaient en ondes puantes, en ténèbres d'esprits sur le monde, hélas ! contaminé. Et il pleura, frappa le sol de son bâton, puis, le pétase à larges bords en arrière, un poing tendu, la main verticale, le ventre en cercle et ses gros pieds nus en avant, il se leva. Rome passa dans ses paroles violentes comme une image de bête mauvaise, à la croupe pleine de péchés, et terriblement il la voulait pourchasser, pour l'assommer de son bâton et l'ensevelir ensuite dans la fange visqueuse où, d'habitude, elle se vautrait, quand un des chrétiens l'interrompit : jeune, à attitude fière, col dégagé, tête nue et cheveux ras, face ovale, fine, intelligente, où deux yeux noirs mettaient des plaques mobiles de beauté transsudante de trente ans, de beauté d'âme qui vivait au-dessous, d'extraordinaire animation, avec une barbe court-pointue complétant une physionomie d'apôtre tout exaltante d'humanité. Et pauvre, vêtu d'une tunique de laine simple, rapiécée proprement, chaussé de sandales de bois, les jambes nues. Il s'appelait Zal. Il fit :
+
+--- L'Agneau ne veut pas que le centre de l'univers, siège de sa gloire future, soit pollué par les injures de notre Frère d'Helvétie. C'est du fumier de Rome que naîtra la divine fleur de Kreistos !
+
+Les autres regardèrent Maglo qui, un moment abasourdi, répliqua :
+
+--- Rome, Rome est une pourriture !
+
+Il répétait cela sourdement, comme si la vision des lupanars de la Voie Suburane lui fût restée aux yeux, et encore sous un coup d'étonnement de l'interruption de Zal, qui, victorieux, défendit Rome, sans plus de souci de la sainteté de Maglo, se sentant déborder et même faiblir dans son ancienne foi en la pureté isolée de Kreistos. Alors une voix fit :
+
+--- La majesté de Kreistos plane sur tout, peut naître de tout !
+
+Les chrétiens s'inclinèrent devant celle-là qui avait prononcé ces paroles, une femme de vingt-cinq ans, expressive et ardente en chacun de ses mouvements, au grand air de patricienne ascétique, sans joyaux, sans fard de minium ou de céruse, austèrement vêtue d'une stola blanche à plis droits et d'une palla recouvrant des épaules frémissantes sur lesquelles des torsades de cheveux noirs, échappés aux bandelettes de la tête légèrement inclinée, apparaissaient, vibrants, vivants. Un autre avança :
+
+--- Notre sœur Severa a raison. Mais cette majesté est incorporelle, un pur esprit, comme celui dont elle émane !
+
+Celui-là, qui était grand, maigre et d'âge de maturité --- quarante ans --- avait une tunique noire, les cheveux mal coupés, la face rasée d'un homme travaillé de secrètes passions. La voix coupante, il dominait généralement un certain monde de chrétiens auxquels il parlait dogmatiquement, les yeux fermés, le menton haut sur un col roide, jusqu'à présent, assez dédaigneux de ce que d'autres religionnaires pensaient et disaient de lui. Car, si ceux-là l'affirmaient savant dans l'Apologétique et homme de pensées larges, ils ne craignaient pas d'amener parfois au jour une tare de fausse christianisation qui faisait d'Atta --- ainsi le nommait-on --- en dehors des assemblées et des réunions intimes des fidèles, une sorte de misérable et besoigneux parasite flattant les grands, vendant la Foi pour quelques auréus et même quelques bouchées de pain et de sardines. Cependant, il se gardait de ces accusations, non encore formulées brutalement, et, pour mieux se défendre, se montrait partisan de l'église officielle des chrétiens politiques, riches, adroits, ne s'entremettant que de loin, sous le regard de l'évêque de Rome, Calliste, et, avant Calliste, Zéphirinus, avec les églises plus humbles, modestes, attendries, fraternisantes dans lesquelles se comptaient ceux qui étaient chez Ghéel et Ghéel lui-même.
+
 ...
