@@ -366,4 +366,88 @@ Chacun frémissait encore de la scène qui avait si brusquement mis fin à la co
 
 Un grand bruit dans la région transtévérine, un bruit de foule hurlante, un galop d'hommes et de femmes courant vers le pont Sublicius ! Des enfants grouillant en des immondices s'effaraient, pendant qu'à des ouvertures de fenêtres, des têtes se poussaient, curieuses, et que, de frayeur, des tavernes basses, à un seul auvent, se fermaient. On criait les divers noms d'Elagabalus, à la fois Antoninus, parce que sa mère, Sœmias, assurait l'avoir eu d'Antonin ; Bassianus, Varius, Avitus, le Syrien.
 
+Ghéel coupait des groupes pressés de citoyens et d'esclaves, d'où seulement émergeaient, posés sur des planchettes ou fichés à des hampes droites, des statuettes, des ferrailles et des quartiers de porc salé de marchands qui, en hurlant, évitaient par instants, avec des mouvements flexueux de reins, des coups de plat de glaive de soldats lamellés de fer et de bronze. Des Orientaux, dont les longs vêtements bariolés faisaient des taches remuantes dans le blanc sale des toges romaines, frappaient sur des tambours recouverts d'une seule peau ; d'autres soufflaient dans des trompettes droites de cuivre luisant ; des prostituées s'injuriaient tout haut, et des matrones couraient après leurs enfants demi-nus, cabriolant partout.
+
+Dans la Voie Sacrée où il débusqua, une lectique portée par quatre esclaves fila devant lui, en un enlèvement nerveux de deux hommes couchés sur des coussins pourpres, l'un pâle à la courte barbe châtain ; l'autre plus jeune, un grand enfant sorti de l'adolescence, la peau dorée, le regard mobile, les cheveux crêpelés comme les siens, Ghéel le regardait par l'entre-bâillement des rideaux de soie --- les plagules --- et le souvenir de son frère du pays, perdu à jamais, lui montait aux yeux, et plus il le regardait, plus ce souvenir grossissait. Oui ! c'était bien ce Madeh dont il parla à Maglo. Et secoué, ravi, il cria :
+
+--- Madeh ! moi, moi !
+
+Il courait après la litière pour appeler l'attention de l'affranchi, avec Atillius. Mais Madeh n'entendait pas, dans la rumeur enveloppante ; mais Atillius songeait...
+
+Alors Ghéel ouvrit tout à fait les rideaux ; la lectique s'arrêta sur un geste de Madeh qui avait vu Ghéel. Le reconnaître et descendre, après une rapide hésitation, et l'embrasser fut tout un !
+
+--- Oui, oui, c'est moi, venu de là-bas, tu sais, mon bon Ghéel !
+
+Et il l'embrassait encore, avec des larmes aux yeux, pendant que Ghéel l'admirait, palpait son cou, ses bras, sa chevelure fleurant un parfum du lointain pays. Comme Atillius les regardait d'un air impassible et à demi égaré, Madeh lui fit :
+
+--- C'est mon frère du pays, dont je t'ai souvent causé et qui me sauva pendant que les gens de ma race se faisaient tuer par la légion romaine. Sans lui, je serais mort, qui sait où toujours loin de toi !
+
+Il disait cela précipitamment, très heureux que Ghéel partageât son bonheur de le voir bien vêtu et coiffé de sa mitia, qui lui allait à ravir, et qu'Atillius connût son frère de Syrie. Celui-ci, indulgent, du fond de la lectique, fit alors au potier :
+
+--- Cours avec nous et viens avec nous !
+
+Et Madeh remonté, la litière s'avança entre le Viminal et l'Esquilin, étageant leurs édifices et leurs maisons qui avaient une belle couleur de safran. Elle obliqua : le quartier des Carènes se présenta, avec ses temples et ses portiques nombreux, ses thermes, ses jardins dont les feuillages gardaient une grande ténuité, une luisante immobilité. Et toujours du peuple, croulant des hauteurs voisines, débusquant des angles des maisons hautes, avec des fenêtres en saillies d'échafaudages ; courant vers la Voie Sacrée laissée à gauche, comme sorti de trous lumineux, dans la pleine clarté du midi qu'il était, dans le bariolage des vêtements et des tentures claquant partout, dans les étoffes agitées du haut de chars plaqués d'ivoire et d'argent ! Et toujours les noms prestigieux d'Elagabalus, comme si le jeune empereur dût approcher plus vite, rien qu'à ouïr cette longue acclamation !
+
+--- C'est demain que le divin Antoninus entre, dit Madeh à haute voix pour que Ghéel l'entendît dans le tumulte. Le peuple veut le saluer à son approche de Rome.
+
+La litière s'engagea dans une étroitesse d'île, aux maisons muettes fermées par des portes à battant de fer, et s'arrêta devant une ouverture d'ostium encadré de pilastres, qui s'ouvrit, laissa voir un vestibule où apparut une face sanguine de janitor, et, au fond, un carré chromé, une ligne droite de colonnes de travertin rouge, un vague éloignement de salles traversées par un rayon de soleil, lamé comme de l'argent dévidé en un large ruban.
+
+Atillius et Madeh descendirent. Ce dernier prit Ghéel qui hésitait.
+
+--- Il permet que tu viennes, lui dit-il, car il aime l'Orient et notre race.
+
+Il l'entraîna à la suite d'Atillius, pendant que des esclaves accouraient.
+
+Dans l'atrium, paré d'une mosaïque et plafonné d'une fresque étouffée expirant à la corniche des colonnes de travertin, un cri rauque retentit. Un singe gris, attaché à un autel bâti au bord du bassin, roulait des yeux presque humains vers Atillius et une ombre évoluait à la muraille où des bigarrures d'oiseaux peints s'envolaient en des nues bleues et roses. Et Ghéel, qui ne savait que dire et marchait précautionneusement, aperçut un paon arrondissant le faste de sa queue aux yeux glorieux, en un harmoge calme d'irisements et de colorations. L'oiseau resta immobile, une patte en l'air, l'attitude énigmatique, le regard droit sur le bout de ciel bleu passant par l'ouverture du toit, le compluvium.
+
+--- Toi aussi allais au-devant d'Antoninus, demanda Madeh à Ghéel, pendant qu'Atillius s'enfonçait vers le péristyle, au fond d'un étroit couloir bordé de tentures, où la tunique, qu'il portait à l'orientale, blanche avec des rayures bichromées, fit une dualité de ton clair mouvant.
+
+--- Oui, frère Madeh, dit Ghéel. On dit que, répudiant tous les dieux romains et n'en acceptant qu'un, qui est un dieu de l'Orient, il sera bienveillant pour nous.
+
+--- Pour nous ? questionna Madeh qui eut un point d'interrogation. --- Et il lui prit la main, le força à s'asseoir à ses côtés, sur un siège de bronze à deux places, un bisellium. Le paon toujours élargissait sa queue, et le singe, tranquillisé, buvait du soleil blondissant le bassin de l'atrium, dont l'eau, d'une profondeur suspecte, avait des remous lents.
+
+Dans le mouvement qu'il fit, Madeh laissa découvrir l'amulette noire, le cône attaché au col par une fine cordelette, et comme Ghéel, surpris, ouvrait la bouche :
+
+--- Hé ! oui, je suis prêtre du Soleil, consacré par Atillius au Dieu de la Lumière et de la Vie, au Dieu d'Elagabalus en qui se résorbent tous les Dieux.
+
+--- Ah ! fit Ghéel.
+
+Il restait pensif, pris d'une espèce de superstition pour ce sacerdoce, avec des regards en dessous vers Madeh, dont les cheveux odoraient bon, dont les membres souples, polis à la pierre ponce, gardaient du bain l'onctuosité de l'huile aux essences multiples. Il avait l'air délicat et heureux d'un éphèbe qu'un rien ferait s'évanouir. Ses bagues étincelaient ; l'agrafe de sa tunique traînante jetait des coruscations ; ses chaussures, bordées d'argent, crépitaient d'éclairs de pierres fines serties juste au-dessus du pied, en un joyau où l'ivoire, la turquoise et l'or entrelaçaient des floraisons contournées. Et il avait surtout une pose lascive, un morceau de croupe frémissante, comme d'une prostituée dont la chair aisée vibre au moindre contact ! Ghéel comprit et son regard rencontra celui de Madeh.
+
+Ils causèrent, laissant réveiller en eux des années vécues sur les bords de l'Euphrate, où ils furent entraînés par des bandes révoltées en des régions de ruines immenses étendues à perte de vue, dévorant des avortements de forêts qui s'acharnent à pousser à travers les pierres, les briques et les marbres où courent des profusions d'écritures à assemblages de coins. Ils étaient surpris de s'être reconnus si vite, et comme instinctivement, après tant de jours écoulés, tous deux ayant grandi, étant devenus méconnaissables. Enfants alors, ils étaient hommes maintenant.
+
+--- As-tu compris pourquoi, en un éclair, notre esprit a sympathisé et nos visages se sont reconnus ?
+
+--- Qu'est-ce qui a éternisé notre amitié et l'a figée en nos cœurs malgré les années ?
+
+Ils se parlaient, Ghéel se rapprochant de Madeh, Madeh ayant comme une petite crise de nerfs. Et l'aspect grossier du potier, ses mains grasses d'argile, sa chevelure épaisse frisottée, sa peau rude tachée de rousseurs, n'étaient point désagréables à l'ami qui oubliait tout pour lui. Tout à coup, Madeh fit :
+
+--- Tu adores Kreistos : je l'ai compris. Elagabalus le vénère, et Atillius, qui conseille Elagabalus, fait de Kreistos, comme la Pierre-Noire, mais moins puissant qu'elle, car Kreistos, qu'est-il près d'elle ? --- une signification du Principe de la Vie !
+
+--- Nous serons donc protégés par l'Empire, dit Ghéel qui ne comprit pas tout ce que lui assurait Madeh. Un des nôtres, qui s'appelle Zal et est un Oriental, croit même que la Pierre-Noire va acheminer le monde vers Kreistos.
+
+Un glougloutement dans le bassin, d'où une gueule creva, un goitre jaune, des yeux atones, un crâne plat, avec des squammes verdissants ! Elle restait immobile, pointant vers le singe qui lui grimaçait, pendant que la queue du paon rayonnait en une cascade de pierreries violacées, bleuissantes, rubéfiantes. Puis un bruit de pas, et s'entr'ouvrit une portière tramée de dessins jaunes, coupés d'angles grecs. Cuirassé par les lames d'or d'un chalcochiton, avec un casque à aigrette plucheuse, une armure moulée au mollet droit, un chlamys bleu fixé à la cuirasse par une grosse sardoine en fibule, Atillius parut. A l'aspect de Madeh et de Ghéel, il sourit, et ce sourire blanc, coupant sa face courtbarbue, triste, grave et aux méplats bleuâtres, tant ils étaient délicats, était si extraordinaire que Madeh, tout embarrassé, se leva, couvrant Ghéel qui s'effarait.
+
+--- Nous causions de la terre qui nous a vus naître, et je ne me lassais d'écouter Ghéel, qui adore Kreistos.
+
+--- Ah ! tu adores Kreistos, dit Atillius plantant un regard fixe sur le potier et s'arrêtant net. L'Empire, qui veut l'Unité des Dieux de la Pierre-Noire, sera bienveillant pour toi et les tiens, quoique Kreistos, votre dieu, ne soit pas l'image complète de la Vie Une et que vous ne recherchiez pas en lui l'Androgyne. Mais si votre Kreistos espère en Elagabalus, cela suffit pour que vous soyez protégés par lui.
+
+Il lui tourna le dos, après un signe disant que maintenant il n'avait qu'à s'en aller, et un singulier coup d'yeux pour Madeh, qui accompagna Ghéel jusqu'au seuil de la porte, élevée de quelques marches au-dessus de la rue déserte et toute abluée de soleil.
+
+--- Viens me voir ici où je serai toujours, lui souffla Madeh, à moins qu'Atillius, qui est primicérius de la Garde prétorienne, ne m'emmène au Palais des Cæsars, que va habiter le divin Elagabalus.
+
+--- Il n'est que Kreistos dont la personne soit divine, répondit Ghéel en étreignant Madeh, qu'il quitta tout triste.
+
+# 6\.
+
+S'essorant, un carruche emporta Atillius et Madeh en un piaffement de bêtes et un glissement de quatre roues à douze rayons palmés, qui firent trépider la petite et muette rue du quartier des Carènes. Les citoyens s'écartaient devant ce char sonore, monté haut sur un caisson carré, orné de bronze et d'ivoire, et ciselé d'argent et d'or, qu'un aurige, courant auprès de ses quatre chevaux blancs, menait vivement.
+
+Autour du Romain et du Syrien, surexhaussés par le char courant en une rectitude qui soulevait un cumulus de poussière, des imprécations s'élevaient, des faces furieuses de vieux polythéistes, des yeux colères d'Occidentaux indignés de l'érection du culte nouveau que l'entrée prochaine d'Elagabalus rendait inévitable. Un plébéien montrait le poing à Madeh, dont la mitra accusait la race ; d'autres ricanaient en se désignant Atillius, cuirassé de son chalcochiton d'or semé d'émaux. Il était évident que, déjà, le peuple romain répugnait aux mœurs orientales, qu'il n'acceptait ni la Pierre-Noire, ni ses sectateurs, ni ses prêtres, ni son thaumaturge, ni son Empereur ; qu'il répudierait un jour ou l'autre les barbares dont le grossier intellect tendait à dépersonnaliser les riches, vivantes et émues mythologies du monde occidental, au profit d'une divinité à forme simple, bonne pour des esprits inférieurs, et qui, outre sa contre-naturelle signification, voulait absorber des dieux si bien humanisés.
+
+Atillius, sa mission auprès du Sénat accomplie, était présentement le premier des officiers de la Garde prétorienne, et il se rendait au camp d'Elagabalus, le Camp des Prétoriens, sur les hauteurs de la Ville, prendre possession de son poste nouveau.
+
+Des cohortes se poussaient, dans le soleil luisant, avec, à leur tête, des musiciens jouant de la tuba, trompette de bronze fort longue, ou soufflant dans des cors de cuivre ; une turme fila en galopant, enseignes éployées, en tonnerres d'acclamations. C'était sur le Quirinal, un quartier pauvre, à sa droite, mais riche, à sa gauche, de temples, de jardins et de palais, d'où les faubourgs de Rome s'entre-voyaient, gris et bleus, sous des floscules de fumées montant droit, comme des colonnes immenses, dans le ciel d'un opaque outre-mer qu'aucun nuage n'alanguissait. Partout, bordant des voies ou larges ou étroites, en un échiquier fortement brouillé, en avalement et dévalement de chars et de piétons, des édifices, des tombeaux blancs ou polychromés, des villas espacées, trouant de façades planes des végétations de jardins entourés de murailles où des fleurs souriaient, roses, violettes, rouges et bleues ; des aqueducs enjambant des toits de maisons, des terrasses nombreuses sur lesquelles pointaient des silhouettes de Romains et de Romaines, à toge, à chlamys, à tunique, à cyclas, à synthésis, dont les couleurs faisaient des gammes et des chatoiements. --- Le carruche descendit ensuite la pente esquiline, pénétrant à même, avec des hurlements de l'aurige soufflant et suant, dans le fourmillement populaire de plus en plus épais, qui toujours jetait ses colères, ses indignations et ses imprécations à la face immobile d'Atillius et de Madeh. Au fond de la plaine s'aperçut alors le Camp des Prétoriens, qui était le camp d'Elagabalus, d'où s'évasaient des fumées, d'où s'échappaient des musiques réitérées d'instruments, pendant que de tous côtés accouraient, confondus, citoyens, esclaves et affranchis de la grande Ville subjuguée par l'Orient.
+
+C'étaient des fonctionnaires courant au-devant d'Antoninus, avec des sénateurs désireux de reconnaître la nouvelle puissance ; les quatre courroies de leur chaussure noire montaient jusqu'au milieu de la jambe, avec, au sommet du pied, un croissant d'or ou d'argent. Des chevaliers dont la pagule de pourpre, cousue au milieu de la tunique, était plus étroite que celle des sénateurs ; des tribuns à laticlave, dans leur char, assis sur des pliants ornés d'ivoire ; des citoyens suivis d'esclaves le front bondé de roses ; puis des marchands de beignets, de fritures et de boissons chaudes, des diseurs de bonne aventure, des avaleurs de glaives, des charmeurs lybiens, plusieurs serpents enroulés à leurs bras luisants ; des gladiateurs qui s'entouraient de curieux, des soldats isolés rejoignant leur cohorte en un éclat de piques et de casques de fer. Et ce monde avançait, le dos tourné vers la ville, charchant à voir le camp qui apparaissait au fond en une solide symétrie, avec ses tentes, ses faisceaux, ses enseignes, sa muraille de gazon, haute ; ses rues, ses hommes, ses chevaux, ses balistes, et ses catapultes aux échafaudages noirs, et, à la partie supérieure, une immense tente, toute de pourpre, couronnée d'oriflammes, celle du jeune Empereur.
+
 ...
