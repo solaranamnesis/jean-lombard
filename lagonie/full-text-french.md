@@ -504,4 +504,76 @@ Chacun le revoyait, la face vermillonnée, les sourcils peints comme ceux d'une 
 
 Ce triomphe, d'ailleurs, avait conservé son aspect militaire d'entrée impériale, tant la discipline subsistait sous les commotions politiques. Ç'avait été d'abord, à l'imitation des Triomphes de jadis, une ouverture d'æneatores soufflant dans leur clairon à tube recourbé ; de joueurs de trompettes et de cors de bronze arrondis comme de grands croissants de lune ; de buccinatores sonnant dans des buccines tordues en spires ; puis, menés par des prêtres à la robe blanche, des bœufs dont les cornes étaient dorées et la tête enguirlandée ; des captifs qui, n'ayant pas voulu reconnaître le nouveau pouvoir, passaient, enchaînés, avec leurs femmes et leurs enfants ; et des licteurs portant des faisceaux entourés de lauriers, suivis de danseurs vêtus en satyres et couronnés d'or. Ensuite, l'armée entière.
 
+Des turmes de cataphractaires et de sagittaires ; des manipules de hastaires, de triaires et de principes, au bord desquelles couraient les centurions, à la poitrine décorée de phalères de bronze, et leurs étendards jaunes ou pourpres à leur tête ; des auxiliaires allant un pas de charge, les glaives nus, les boucliers relevés ; puis la cavalerie légère et la cavalerie lourde coiffée de casques de fer ou de cuivre ; des archers parthes et des frondeurs crétois, dont une gueule de bête couvrait l'énergique tête brune ; enfin, les valets de l'armée et les esclaves frappant des mulets, des chameaux et des éléphants chargés. Les lions et les léopards, par les pattes attachés à des chaînes de fer, étaient poussés à coups de crocs, et ils rugissaient, ils miaulaient, en des bonds nerveux.
+
+Et cela avait coulé dans le tumulte des instruments, les grandes et réitérées acclamations d'un peuple qui applaudissait à Elagabalus pendant que beaucoup le maudissaient ; les fureurs d'individus qui, par instants, frappaient des citoyens assez hasardeux pour ne pas vouloir s'incliner devant la Pierre-Noire, oscillante au soleil baisant les pointes blanches des lances, les bords jaunes des boucliers, les mailles bleues des armures, les hampes d'or des étendards, dont les enchevêtrements tranchaient leurs couleurs brutales sur les fonds d'azur du ciel immuable et dur.
+
+Cette gloire d'un Empire nouveau visionna tout le jour, comme une mer furieuse, heurtée aux temples, brisée aux portiques et aux angles des voies ; elle monta en triomphe au Capitole, sans plus d'ordre à la fin, emplissant le Forum d'une multitude armée, casquée, aux tons de violentes chairs desquelles fluait un fort relent de débauches emportées. Indignés, des Romains ennemis de l'Orient s'étaient voilé la face ; des matrones coururent s'enfermer chez elles ; pour avoir essayé de chasser l'Empereur et d'arrêter la marche de la Pierre-Noire, le préfet du prétoire, Julianus, fut égorgé ; du sang coula, et maintenant chacun se disait que c'était la fin de Rome, la conquête des vainqueurs par ceux que l'on avait jusqu'à présent vaincus !
+
+# 9\.
+
+Au Vélabre, sous des portiques, une boutique de barbier s'ouvrit, ployant ses auvents contre la muraille peinte à la cire rouge, et s'entrevit son intérieur, avec ses escabeaux et ses bancs, ses miroirs d'acier reposés sur des étagères, ses armoires enfermant des cosmétiques, des pots de pommades et des flacons d'essences venues de très loin. Dans les encoignures, des morceaux d'étoffe carrés ; au fond, une conque de brique vernissée, avec des amphores pansues remplies d'eau fraîche. Par une échappée, la voie découvrait le faîte du Grand Cirque, placé entre l'Aventin et le Palatin, élevé au-dessus des maisons dont les façades avaient des éclats, comme un casque énorme qu'aurait aplati le sabot d'un monstrueux cheval.
+
+Des citoyens traînaient leurs sandales sur le pavé, regardés d'un air muet par des patriciens qui, fastueusement, portaient une tunique ornée du paragaudis, lame de soie de couleur brodée aux poignets, aux épaules et au bas des jambes, et des étrangers, s'ébahissant à chaque pas, étaient la risée d'écoliers faisant sauter un étui et des tablettes dans leurs mains.
+
+La matinée couchait partout des déblaiements roses-gris, flottant au-dessus de nimbus de poussière jaune qui était de l'atmosphère épaissie. Aussi, il arrivait que quelqu'un passait se secouant dans sa toge, reniflant et aspirant de l'air venant du côté du Tibre qui, par des trouées de rues étroites, apparaissait, traînant, lent, butyreux.
+
+Le barbier, un maigre Grec, court et à plate face rasée, troussa les manches de sa tunique et lava à grande eau sa boutique. Un Romain, qui avait aux tempes les cheveux collés, dont le nez relevé crevait au-dessus d'une barbe pointue sans moustaches --- chose originale --- et qui gardait sous le bras un long rouleau d'où pendaient des cordelettes rouges, le regarda avec un rire déplaçant des dents usées. Il s'accota à une colonne du portique, en faisant des réflexions tout haut :
+
+--- Tu n'as pas assez bien nettoyé, Typochronos ; il y a là des plaques à déshonorer ta boutique. Les clients ne se feront plus raser par ta main de Grec. Rends les fresques effacées de ce plafond brillantes comme des miroirs, crois-moi !
+
+Alors le barbier, qui répondait au nom formidable de Typochronos, hocha la tête, grommela :
+
+--- Viens t'y mettre, toi ; use tes poignets à faire luire ce qui n'a que trop brillé !
+
+L'autre reprit, avec une aigre inflexion de voix qui fit trépider sa langue comme une feuille de métal : 
+
+--- C'est aujourd'hui, sais-tu, que je veux lire à tes clients mon poème _Vénus_, et, quoique composé, je puis t'y placer encore, peignant l'Amour, son fils ailé, si ta boutique est claire comme l'eau de tes amphores.
+
+--- Mais oui ! fit Typochronos. Il n'est rien que je ne veuille pour t'être agréable, Poète !
+
+Et il frotta, dans un claquement de ses sandales de bois sur le plancher inondé, qui éclaboussèrent d'eau sale les murailles de la boutique.
+
+Il cessa enfin, plaça en bel ordre les bancs, dressa les miroirs sur les planchettes, aligna les amphores, et le magasin prit un joyeux aspect. Le poète Zopiscus s'affala sur un siège, une cathèdre grecque à dossier semi-circulaire bourrée de coussins moelleux, admiration des clients de Typochronos. Un peu de soleil poudroya au plafond, rebondit sur les faces des miroirs, en paillettes brisées. Dans la rue, des gens passaient, les uns majestueusement enveloppés d'une toge blanche, suivis d'autres, tristes et dépenaillés ; ceux-là de riches particuliers, ceux-ci leurs clients ; les autres, deux à deux ou groupés par trois ou quatre, vêtus simplement en citoyens romains qu'ils étaient, et causant tout bas, avec des regards furtifs autour d'eux, pendant que des cavaliers, les hommes et les chevaux couverts d'écailles, galopaient éperdument, des chiens lâchés après eux.
+
+--- Atta !
+
+--- Zopiscus ! Salut. Salut à Typochronos qui va me raser adroitement, n'est-ce pas ?
+
+C'était Atta, le chrétien Atta, qui s'assit, aimable pour Zopiscus et Typochronos. Celui-ci délaya du savon gaulois en pâte, lui redressa te menton et frotta énergiquement sa peau rugueuse. Atta parlait. Zopiscus, nonchalamment renversé au dossier de la cathèdre, relevait sa barbe pointue sans moustaches, et vaguement regardait le plafond de la boutique de Typochronos qui entremêlait des coups de rasoir à la conversation.
+
+--- Vois-tu, Rome a lieu d'être satisfaite de l'arrivée d'Elagabalus qui est Antoninus. Quoique grand-prêtre de sa Pierre-Noire, il admettra tous les dieux au Capitole, à côté de sa divinité, dont j'entrevois la signification. Cette Pierre-Noire, après tout, quoiqu'elle n'ait pas de visage humain comme Zeus, comme Dyoniseus, comme tous nos dieux, représente fort bien le grand Tout qui est le Cosmos où chaque créature vit. N'est-elle pas le Principe de la Vie sous forme de la virilité active ? Du moins, c'est ce qu'a cru comprendre mon faible entendement. Il est vrai que le Principe de la Vie, ainsi déifié, peut pousser à des excès, à des fautes qui toujours rabaissent le misérable humain que nous sommes tous, toi, Zopiscus ; toi, Typochronos ; moi, Atta, et bien d'autres ! C'est même ce que disaient hier des Romains aimant leurs dieux et fort peu la Pierre-Noire, ce qui ne veut pas dire n'aimant pas l'Empereur ! Je vous prie de ne pas mal interpréter mes paroles, de ne pas les porter aux pieds d'Elagabalus avec une pensée de malice. J'ai applaudi à l'entrée de l'Empereur et son triomphe m'a fait, de joie, verser des pleurs !
+
+C'était lentement qu'il parlait, prudemment et très sérieux, sous la pâte blanche du savon noir que le rasoir de Typochronos balayait là où il passait avec un crissement de poils coupés. Il n'avouait pas sa qualité de chrétien, il ne la niait pas non plus, et même, la passant sous silence, c'était chez lui comme un désir de l'accorder avec ce qu'il disait des dieux en général. Mais Zopiscus, narquois, étira sa barbe sans moustaches d'une main qui tenait le volumen et fit claquer deux doigts de son autre main levée en l'air.
+
+--- Oui, tu pleurais, chrétien, fit-il, et un de tes frères se faisait massacrer sous le char d'Elagabalus !
+
+Atta fit un mouvement. Typochronos lui taillada la joue maigre, où un filet de sang stria le menton.
+
+--- Moi, chrétien ! Tu t'abuses, poète ; je ne suis qu'un pauvre ami des doctrines de Kreistos, ou plutôt de l'Orient, d'où Kreistos est issu. Surtout n'avoue pas cela à tous. J'aime les dieux, Kreistos est un dieu, comme tu es un poète fort agréable et comme je suis un humble citoyen.
+
+Il bavardait, bafouillait, au fond très vexé que Zopiscus sût qu'il était chrétien, et n'osant ni affirmer ni renier Kreistos. Il venait chez Typochronos pour s'entremettre au mieux avec ses clients, dont quelques-uns étaient fort riches, surtout un Egyptien, depuis peu venu à Rome, qui semblait l'avoir écouté avec intérêt. Et s'il était parasite, Zopiscus l'était également. Qu'avait-il à gagner à affirmer la Foi devant lui, qui pouvait le desservir auprès d'eux ? Mais Zopiscus devint féroce, et, profitant de ce que Typochronos attendait, le rasoir en l'air, il dit :
+
+--- Tu as peur et tu mens, vieil hypocrite. Chacun sait que tu assistes aux assemblées de chrétiens. Pourquoi ne pas l'avouer, à moi qui n'ignore rien !
+
+Atta prit un air mystérieux, pinça ses lèvres, et un pli inquiet autour des yeux, regarda autour de lui, penché vers Zopiscus, ignoblement, avec le sourd espoir que ses paroles allassent plus loin :
+
+--- Le nouvel Empereur m'en saura gré, crois-moi ! Il a besoin d'oreilles pour tout entendre et d'yeux pour bien voir ce qui se fait dans son empire.
+
+Typochronos hasarda :
+
+--- Oui ! on parlait d'un vieux chrétien que les soldats, après l'avoir d'abord arrêté, ont relaxé sur l'ordre de l'Empereur. Très dangereusement il lui lançait des injures. Son nom m'est inconnu.
+
+--- Il s'appelle Maglo, assura Zopiscus. C'est un Helvète et, comme Atta, un chrétien.
+
+Il s'acharnait à Atta dont il voulait détruire la réputation, afin d'être seul auprès des clients riches du barbier qui allaient bientôt arriver. Le très fier avec les chrétiens pauvres et l'humble et insinuant avec les citoyens opulents, Atta tressauta alors ; une large balafre, au coin des narines, lui fit une belle marque rouge :
+
+--- Maglo ! Maglo !
+
+Il répétait ce nom, avec l'évidente peur d'une persécution qui, de Maglo, serait allée jusqu'à sa maigre et rogue personne, ce à quoi sa qualité de chrétien le prédestinait fort. Et comme il cherchait à savoir pourquoi Maglo avait été à demi assommé et relaxé, Zopiscus le lui dit, ayant lui-même assisté à l'événement. --- Comme poète universellement répandu, il accourait vers Elagabalus dont le char tournait le Capitole, avec son rouleau en main, le poème _Vénus_ qu'il voulait adresser à sa Divinité ; un vieillard monté sur une borne, vouait Rome à la malédiction divine et priait le Kreistos des chrétiens d'effacer de la surface terrestre les traces des abominations du Cône-Noir. Le rassemblement qu'il attira arrêta Zopiscus et l'empêcha d'atteindre Elagabalus qui, volontiers, eût lu son poème. Mais des soldats dispersèrent les citoyens à coups de piques, de glaives et de courroies de leur ceinturon, et saisirent Maglo qu'ils amenèrent à Elagabalus. --- Il fut mis en liberté, s'écria Zopiscus, parce qu'il était chrétien. Le nouveau primicérius de la garde prétorienne, dit-on, a, en cette circonstance, inspiré l'Empereur !
+
+--- Ce primicérius est un patricien venu de l'Orient ; il s'appelle Atillius, demanda Typochronos ? 
+
+--- Atillius, oui ; le peuple l'appelle ainsi, continua Zopiscus. Et voilà comment je sais que tu es chrétien, dit-il à Atta qui faisait une grimace pincée en écoutant le poète. Maglo passa à mes côtés, s'exclamant : « Si je suis chrétien, d'autres le sont avec moi, mais non comme moi. J'abomine Elagabalus, quoiqu'il ne m'ait fait aucun mal, mais Zal l'aime et Ghéel l'aime. Atta le combat, il est vrai, mais Atta veut une seule personne au Kreistos tandis que j'en veux trois. Or, je ne serai jamais avec Atta pas plus qu'avec Ghéel et Zal ! Mon Kreistos est mon Kreistos et non le leur ! »
+
 ...
