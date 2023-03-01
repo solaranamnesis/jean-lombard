@@ -576,4 +576,38 @@ Il répétait ce nom, avec l'évidente peur d'une persécution qui, de Maglo, se
 
 --- Atillius, oui ; le peuple l'appelle ainsi, continua Zopiscus. Et voilà comment je sais que tu es chrétien, dit-il à Atta qui faisait une grimace pincée en écoutant le poète. Maglo passa à mes côtés, s'exclamant : « Si je suis chrétien, d'autres le sont avec moi, mais non comme moi. J'abomine Elagabalus, quoiqu'il ne m'ait fait aucun mal, mais Zal l'aime et Ghéel l'aime. Atta le combat, il est vrai, mais Atta veut une seule personne au Kreistos tandis que j'en veux trois. Or, je ne serai jamais avec Atta pas plus qu'avec Ghéel et Zal ! Mon Kreistos est mon Kreistos et non le leur ! »
 
+Trois nouveaux venus interceptèrent l'entrée de la boutique. Typochronos lâcha Atta qui alla se laver dans le bassin du fond. Même Zopiscus, qui décidément prenait une voix métalliquement triomphante, se leva, toujours le manuscrit serré au bras, et baisa le bas du manteau, --- un diploïs --- des assistants :
+
+--- Salut à toi, étranger, qui viens des rives du Nil ! Et aussi à vous deux que la Grèce, mère des Muses, a vu naître !
+
+Flatteur, il s'effaçait des épaules devant Amon et les deux Grecs, qui, voisins de la boutique, venaient tous les matins chez Typochronos pour connaître les événements de la veille. Les Grecs, très avares et seulement payant d'apparence, se contentaient de faire parfumer l'opulence fluviale de leur barbe noire ; mais la face ronde d'Amon étant riche d'une glabréité luisante ombrée seulement de petits cheveux frisottés comme ceux d'un métis d'Egyptienne et d'Ethiopien qu'il devait être, n'avait pas cette ressource. Aussi était-il livré sans miséricorde à l'avidité du barbier, qui le parfumait ferme, l'oignait et le frictionnait de toutes les pommades, de tous les onguents connus, et cela avec un grand air cérémonieux qui plaisait à Amon, et lui faisait payer fort cher ces attentions.
+
+Il se fit nettoyer les ongles et frotter la tête d'une essence égyptienne, très heureux de voir Zopiscus empressé autour de lui. Car le parasite Zopiscus, qui avait prestement lâché Atta, à ce moment rasé et assis à un banc de la boutique et un de ses genoux sur l'autre, montrant un bout de jambe noueuse et mal épilée ; Zopiscus s'essayait à Amon, qu'il devinait moins sceptique qu'Aristès et Nicodœmès. Ce qu'instinctivement il poursuivait était un bon repas qu'Amon pouvait lui offrir, une cœna quelconque, d'oseille cuite, de champignons, de sardines et d'œufs, qu'il lui fallait conquérir avant que l'Egyptien ne sortît des mains du barbier, nettoyé, parfumé et flatté.
+
+Il ne songeait plus à Atta ; même dédaigneusement il lui tournait le dos, un dos mal articulé de poète qui a faim souvent. Il disait à Amon :
+
+--- Vois-tu, étranger, je voudrais être ton esclave, tant je vois de la bonté sur ta face et de l'esprit dans tes yeux. Que n'ai-je un maître comme toi, qui m'enseigne le chemin des Muses sans me heurter à ses ronces ?
+
+Amon souriait, la tête pivotant sous les frictions de Typochronos, et montrant ainsi, en leur largeur et leur éclat lunaires, cette bonté de la face et cet esprit des yeux par de rapides tournoiements. Mais Nicodœmès, qui s'était saisi de la cathèdre grecque, fit :
+
+--- Hé ! poète, il peut t'acheter comme esclave ; il est seul. Tu le serviras, tu le frotteras d'essences et Typochronos ne l'aura plus parmi ses clients.
+
+Le barbier frotta plus vigoureusement Amon, dont la tête rentra dans les épaules, sous un renflement de son diploïs rayé, et l'Egyptien eut le large rictus d'une sphère de fer aplatie qui se crèverait. Typochronos montrait ainsi son ennui à ne plus avoir Amon pour client.
+
+--- Je laisserai ce soin à Typochronos, fit Zopiscus d'une voix léchante, mais je lui lirai des poèmes sur Vénus.
+
+--- Amon préférerait des hymnes à Sérapis, suggéra Aristès, allongeant sa langue devant un miroir.
+
+Alors Atta se leva, fort ennuyé de cet accaparement du marchand de lentilles, et légèrement inquiet de se voir oublié. Il avait faim, la matinée s'écoulait et il lui fallait mettre la main sur quelque généreux citoyen qui l'invitât à la cœna du jour, une cœna comme celle que rêvait Zopiscus. Si avec les chrétiens il paraissait à l'abri des besoins matériels, lui plongé dans l'Apologétique ! il n'en était pas de même avec les polythéistes qu'il poursuivait de ses obsessions. Tirant doucement Amon par son diploïs :
+
+--- Ta langue est bonne, lui dit-il, je suis un peu médecin, crois-moi ! J'ai étudié jadis pour guérir les hommes.
+
+Il n'y avait rien de moins vrai, Atta n'était pas médecin, mais que n'eût-il fait pour entrer dans les bonnes grâces d'un étranger comme Amon ? Tout à son désir d'une cœna, il n'avait présentement souci de Kreistos, du terrible Zal et des chrétiens qui se réunissaient chez Ghéel. Mais Zopiscus s'exclama, tortillant d'une main sa barbe pointue sans moustache, et de l'autre brandissant son rouleau.
+
+--- Sérapis, Isis, Typhon, Athotis, Apis, Sud-Anu, Phtah, Kneph, Horus, Ma, Ra, Num, Zom, Nephthys, Apepi ! Je connais toutes tes divinités, Amon ; je puis les chanter sur des modes nouveaux ou en vers asclépiades, glyconides ou phaleuques. Je puis les faire alterner au son des tambourahs comme leurs prêtres que j'ai toujours honorés !
+
+Subitement, Atta, craignant que Zopiscus allait le conquérir, baisa la sandale de l'Egyptien, une sandale de cuir jaune nouée d'un cordon vert. Il lutta de concurrence : --- Amon, tu possèdes le nom du dieu unique, absorbant tous les dieux ! Amon, ce nom te porte bonheur, je le vois à ta face florissante. Tu es sectateur de Sérapis, mais adorateur de ]a seule puissance universelle. C'est ma Foi ! Je ne suis pas seulement chrétien, comme va te le dire ce poète, mais un croyant d'Ammon aux cornes de bélier, qui est Zeus, qui est Mithra, qui est Baal, qui est Javeh, qui est Kreistos. Nous nous rapprochons de toi.
+
+Il espérait plaire au marchand de lentilles en avouant sa foi chrétienne sous le masque de l'Unité divine, car s'il eut dit autrement, Zopiscus, qu'il enveloppait maintenant d'un air de dédaigneux philosophe, de pédagogue supérieur, n'eut point manqué de le démasquer, et Atta risquait la cœna dont le poète aurait profité. Typochronos nettoyait les ongles d'Amon et le chatouillait doucement dans les jointures des doigts et la paume des mains, comme l'eût fait une courtisane. L'Egyptien se pâmait.
+
 ...
