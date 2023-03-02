@@ -626,4 +626,16 @@ Comme pour confirmer l'indignation des clients, la rue s'emplit de gens, des cou
 
 Le cortège passa lentement sous les yeux attérés des clients de Typochronos. Des prêtres mitrés du Soleil précédaient des Saliens à tunique brodée et à robe prétexte, ceints d'un ceinturon de cuivre et couverts d'un bonnet pointu, qui, une épée à la main droite et au cou un bouclier ancile suspendu, dansaient un pas pyrrique. Des pontifes, dont la robe était bordée de pourpre et le bonnet était de feutre, agitaient une légère baguette terminée par l'apex, touffe de laine, et entouraient le char, plaqué d'ivoire et d'argent portant le Feu sacré, gardé dans un plateau de bronze, et le Palladium, belle et grande statue de Minerve casquée, des turquoises dans le trou des yeux, le sein bardé de la peau de la chèvre Amalthée, et armée d'une lance et d'un bouclier. Et ce bouclier avait au milieu une tête de Gorgone, chevelue de serpents.
 
+Il y avait également des mystes de Pan, des galles de Kybèle confondus avec les prêtres d'Isis, laquelle menaçait d'absorber les divinités femelles, car, plus qu'elles, elle représentait, avec ses mamelles multiples pendant sur son ventre noir, la Nature et ses forces ; des augures à la trabée rayée d'écarlate, qui étudiaient le destin dans le vol des piverts ; des aruspices qui interrogeaient les entrailles des bêtes égorgées ; des septemvirs qui préparaient les fêtes publiques suivant les rites sacrés ; des sodales adorant les empereurs morts, enfin les sectateurs des innombrables religions qui se partageaient Rome. Ce cortège poussait des bœufs, des moutons et des brebis enguirlandés de feuillages, qui, meuglant et bêlant, couraient allègrement à leur égorgement.
+
+Derrière Elagabalus c'était, en un balancement lent, un balancement voluptueux, une large litière portée par seize esclaves, où deux femmes étaient couchées, et dont les étoffes polychromes, les draperies à striures violentes se nimbaient de la fumée de parfums brûlant en de grands vases fichés à ses quatre coins. Puis, fermant la procession, des soldats, des prétoriens sanglés d'or et heurtant une pique d'or à un bouclier d'or, des cavaliers, beaucoup de cavaliers de toutes armes ; des sagittaires élevant des arcs très hauts, des cataphractaires dont le dos se bombait en écaillements mouvants, des scutaires qui brandissaient des boucliers oblongs, des Barbares africains qui chevauchaient sans éphippias et sans étriers sous des verticalités roides d'enseignes, de hampes terminées par une Poignée-de-Foin, une Main ou une Bête quelconque, Coq, Sanglier, Aigle, Louve. Et enfin, accourant de toutes parts, de la foule tumultueuse, immense, épaissie de plus en plus.
+
+--- Les reconnais-tu, dit tout à coup l'Egyptien à Nicodœmès ; reconnais-tu Atillius et son affranchi ?
+
+Et, désireux de tout voir, nullement indigné du sacrilège d'Elagabalus, il lâcha les Grecs, le barbier et ses clients, harcelé par Atta et Zopiscus qui, après avoir un instant hésité, le saisirent par son diploïs, l'arrêtèrent par une aile de sa calantica.
+
+--- Tu ne connais pas Rome ; je t'accompagnerai !
+
+--- Je serai ton défenseur, ton guide et ton appui !
+
 ...
