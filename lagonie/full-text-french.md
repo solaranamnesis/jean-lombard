@@ -692,4 +692,58 @@ Elle le renvoya ensuite, avec un grand éclat de rire qui ne l'offensa nullement
 
 # 12\.
 
+Il caracolait à côté de la litière, Madeh, essayant de saisir le timbre de la voix d'Atillia, quand ses yeux rencontraient les siens. Elle et Sœmias se vautraient sur les coussins, les seins nus hors de la cyclas, les cuisses nues, laissant voir un commencement de sexe épilé et étalant des chevelures audacieusement coniques, piquées de perles et de pierres. Parfois, dans le balancement des épaules des porteurs, elles disparaissaient, s'enfonçaient, puis rebondissaient, et, à travers la fumée des parfums brûlant aux quatre coins de la litière, à travers le flottement des draperies, on les revoyait, en une vision de chair offerte à tous les regards.
+
+Madeh aimait fort ainsi Atillia, et quoique un sentiment, encore informulé en son obscur organisme d'éphèbe à peu près désexualisé, le portât vers elle, nulle pensée jalouse ou concupiscente en lui ne naissait, sacrifié qu'il était depuis sa jeunesse au Soleil, consacré à la Pierre-Noire et donné à l'amour mâle. Il était presque du sexe d'Atillia, car, comme une femme, il appartenait à l'homme par Atillius.
+
+Tout à la joie d'être auprès d'elle, il n'entendait rien, il ne prêtait attention à rien. Un moment, Ghéel appela :
+
+--- Madeh, frère Madeh !
+
+Mais cette voix se perdit dans la rumeur de la cérémonie.
+
+La procession gravit les voies du Palatin, d'où du Forum Romanum, s'apercevaient, blanches et jaunes, les façades, surtout les verticalités planes de l'Arx, la forteresse du Capitole, vers laquelle on accédait par un large escalier. C'étaient beaucoup de temples et d'édifices, des arcs qui aux deux extrémités s'enfaciaient ; des portiques sous lesquels des individus s'animaient, des basiliques et la Grécostasis où l'on donnait audience aux envoyés des nations étrangères, principalement aux ambassadeurs grecs. Le Forum fourmillait de gens à toges, à tuniques, à palliums, à diploïs, tête nue ou coiffés de bonnets strobilés, de pétases tombants par les bords, de calantias égyptiennes, de torulus d'étoffe voyante, semblables à des turbans, de tœnias serrant des branches de chêne ou des rubans autour des fronts. Ces gens regardaient d'en bas le cortège, nez à l'air, yeux grands ouverts, ventre en avant et jambes écartées soutenant leurs bustes roidis, pour le mieux voir se déployer et disparaître derrière des amas de maisons de la région, où son déroulement, piqué de la tiara d'Elagabalus dominant tout au haut de son thronus, fit une tache de choses disparates qui éblouirent un instant, mêlées à un peu de fond du ciel bleu !
+
+Au milieu d'une place rapidement envahie, le Temple du Soleil, blanc, rond, cerclé de colonnes, élevait son faîte aux frises régulières. Ghéel et Atta virent l'Empereur, Sœmias et Atillia, les prêtres du Soleil et des divinités universelles, les porteurs des objets sacrés, Atillius et Madeh, puis les victimes poussées par des soldats, gravir ses marches, pendant que sur la place piétinaient les chevaux, les esclaves et le peuple immense, débordant :
+
+--- Je ne le verrai pas ; je ne lui parlerai pas, dit Ghéel à Atta qui insinua :
+
+--- Prends patience ; la patience est une vertu de Kreistos !
+
+Et lui-même jetait ses regards fréquents autour de lui, espérant revoir Amon et Zopiscus, car le soleil roulait au centre du ciel, et la faim le torturait et la cœna était perdue !
+
+Du Temple s'élevaient une voix juvénile, et des chants de prêtres, au rythme lent, et comme une éclatante invocation à la Pierre-Noire. En une langue inconnue, des hommes modulaient des prières de furieuses amours, qui firent reculer d'horreur de vieux Romains, sectateurs des dieux occidentaux. Puis des cris ; des meuglements de bœufs égorgés, des plaintes de brebis et de moutons sous le couteau des sacrificateurs... Et un tumulte de boucheries innomables, un roulement féroce de coups, toujours dominés de la voix, et fraîche, et nette, et limpide, d'un timbre exquis, d'Elagabalus adoré comme le dieu vivant du Soleil !
+
+Les portes de bronze aux clous d'or s'ouvrirent ; du sang coula des marches en filets serpentants, baignant le sol, pendant que chacun s'effaçait en des mouvements de recul. A l'intérieur, des lumières de torches et des étincellements de mitras, et, sous un dais avançant ses tentures supportées par des lances inclinées, Elagabalus bénissant avec le Cône-Noir, les grandes manches de sa robe rouge alourdies sous les rubis, les chrysolites, les améthystes, les topazes, les émeraudes et les perles qui la tramaient, les plis tombants de l'étoffe épaisse lui baisant les pieds blancs hissés sur l'escabeau qu'on ne voyait pas.
+
+Derrière, Sœmias et Atillia, assises sur des okladias grecs ployés ; autour, dans l'ampleur conquée des fonds, des prêtres dansant au son d'une courte flûte et d'un tambour bas ; au milieu, sur un échafaud, des cadavres d'animaux, qui pantelaient.
+
+Un grand silence ! Puis, une émersion lumineuse d'Elagabalus qui vira dans l'éblouissement de son thronus et donna le signal du retour. Et il se fit, au soleil brutal noyant tout au dehors d'une lumière crayeuse, un grand écoulement d'hommes et de chevaux, un désenlacement des prêtres, des prétoriens et des musiciens, suants et glorieux dans leur robe et leur armure, en une suite somptueuse au-dessus de laquelle se balançait, telle qu'un large radeau, la litière de Sœmias et d'Atillia bordée de Madeh, caracolant, qu'à la tête des cataphractaires précédait Atillius, un glaive au poing.
+
+Madeh repassa devant Ghéel ; même son cheval noir ébroua fortement sur la tête crêpelée du potier qui appela l'affranchi, mais en vain. Pourquoi Madeh l'avait-il oublié ? Et Ghéel, se tournant vers Atta, s'exclama, tout confus :
+
+--- Que lui ai-je donc fait, à mon frère Madeh, pour qu'il ne m'entende pas ?
+
+Atta ne lui répondit pas. Atta avait disparu, entrevoyant, dans un éloignement de curieux, un effacement d'épaules qu'à leur flexuosité il prit pour celles de Zopiscus. Et effectivement ! Zopiscus était à quelques pas, ne lâchant plus Amon, se cramponnant à lui, et déjà lui parlant d'une taverne sur l'Esquilin, où l'Egyptien trouverait, pour la cœna désormais conquise, en sus de l'oseille cuite, des champignons, des sardines et des œufs ordinaires, d'excellentes fritures, de succulents beignets, du gras double bien assaisonné, des vins de choix, et même de jeunes prostitués mâles que des poètes de sa connaissance avaient chantés. Amon avait faim et, se sentant perdu dans Rome, qu'il avait à peine parcourue depuis son arrivée, il acquiesçait du chef quand, fendant la foule avec une extrême sveltesse, Atta le prit par un pan de son diploïs.
+
+--- Allons, à la cœna ! Je t'emmène près du Capitole ; nous mangerons de l'oseille, des choux, des champignons, des sardines et des œufs !
+
+Mais furieux, Zopiscus, le tirant par un coude, hurlait :
+
+--- Viens avec moi sur l'Esquilin ! Des fritures, des beignets, du gras-double et du vin adouci dans du miel !
+
+--- La prostituée Antistia, viens !
+
+--- Des jeunes garçons, à moi !
+
+Ils renchérissaient, se pourléchant les lèvres, gourmands par avance d' Antistia et des jeunes garçons dont ils comptaient bien user autant qu'Amon. Mais celui-ci se contentait de les regarder tour à tour, écartelé et comique sous la calantica, dont les ailes pleuvaient sur ses oreilles abasourdies. Il ne les comprenait pas bien. Enfin, il fut bonhomme ; il les accorda tous deux !
+
+--- Je vous suis ; je suis avec vous. Emmenez-moi à la taverne qui est voisine de ma maison !
+
+Alors, Atta et Zopiscus se radoucirent. Dans la foule qui s'épuisait, ils le prirent chacun par un bras, en bons amis, pendant que Ghéel, tout seul, se répétait, en un navrement :
+
+--- Que lui ai-je fait, à mon frère Madeh, pour qu'il ne m'entende pas ? Je lui aurais demandé que l'Empereur adorât Kreistos au lieu de sa Pierre-Noire, et parlé des bords de l'Euphrate où nous avons vécu !
+
+13\.
+
 ...
