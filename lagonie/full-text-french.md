@@ -746,4 +746,98 @@ Alors, Atta et Zopiscus se radoucirent. Dans la foule qui s'épuisait, ils le pr
 
 13\.
 
+Enveloppé dans son diploïs dont les raies, brunes, se modelaient à son gros individu, la calantica retombant sur ses oreilles comme deux larges feuilles, Amon descendait paisiblement la Voie Suburane, que fréquentaient des esclaves et des coureurs de prostituées dont les lits de nattes s'entrevoyaient par des ouvertures d'auvents mal joints. En un grand dévalement qui plongeait vers la rue Neuve, la Voie se dérobait derrière le Vicus Tuscus, enfaciant le Forum, et laissait à droite et à gauche des palais, des thermes, des jardins, des arcs, en sa course de rue populeuse où se coudoyaient, gesticulant et criant, le Numide, le Juif, l'Indien, le Kelte, l'Ibère, l'être humain des trois continents.
+
+Amon venait de très loin, de la Région Esquiline où l'avait emmené Zopiscus, au mieux avec lui depuis la cérémonie du Temple du Soleil, plus d'un mois s'étant écoulé. Et, ce jour-là, il avait fait une petite débauche avec le poète, un fin repas dans une taverne bien achalandée qui leur avait servi de l'estugeon et de la lamproie, des pommes de pin et des gâteaux d'amandes, un délicat francolin d'Ionie, véritable rareté ; des vins d'Albe clarifiés avec des œufs de pigeons, et de Lesbos, dans la mer Egée. Zopiscus y avait gagné une saoulerie, qui le fit porter à demi mort à son domicile ; Amon s'était seul retiré, gardant encore au cerveau la fumée des vins et sur l'estomac la lourdeur des mets.
+
+Il ne songeait à rien, Amon, sinon à aller devant lui, sans savoir, avec le secret désir d'être appelé par quelque prostituée, quoiqu'il eût honte de cette faiblesse. Car, en sa jeunesse maigre, il avait apris à se contenter de peu, et maintenant que l'âge mûr l'engrisoyait, que l'embonpoint l'arrondissait, il se sentait peu d'humeur à se livrer aux premières venues. Et quelles femmes ! Des Romaines chlorotiques, des Italiques aux yeux cernés, des étrangères aux seins plats, puantes de peau et de bouche, avec des croupes ignobles ; des négresses à face torve, promettant des voluptés sales auxquelles d'avance il se refusait. Elles l'avaient appelé sans qu'il les écoutât. Malgré tout, en son inconscience présente, surnageait son ancien désir de la jeune Egyptienne dont il serait l'époux, et qui ferait autour de lui une envolée d'enfants bruns, à lui tout ressemblants. Et ce désir, quoique confus, était assez tenace pour le faire hésiter.
+
+Il se disait, en raccordant difficilement ses pensées, qu'il avait assez de Rome ; que maintenant besoin lui était de retourner à Alexandrie. Certes, Zopiscus lui paraissait homme agréable, mais il ne valait pas le plus simple des porteurs d'eau d'Alexandrie ; et puis, il aimait trop bien manger, dans les bonnes tavernes romaines, au dépens de lui, Amon ! car, très généreux, Amon payait constamment l'écot de Zopiscus, qui, décidément, pouvait être un parasite, malgré que visité des Muses ; parasite comme Atta qui, tous les matins à son réveil, lui parlait de l'excellence des dieux égyptiens sur les dieux romains, et de l'irrésistible puissance d'une force occulte, le Kreistos, par laquelle il expliquait toutes les divinités. Il se disait aussi n'avoir jamais compris les profondes pensées d'Atta pas plus que les poèmes de Zopiscus, exaltant Zom, Num ou Apepi ! mais par contre soupesé le sac de solidus d'or apportés à Rome dans le fameux arca que, si bien, sur la voie Appia, guigna le momifié Jephunné, et qui baissait sensiblement.
+
+A cent pas derrière, un homme suivait qui, par instants, poussait des éclats de voix, ameutant tout autour de lui. Amon se retournait, et il voyait, dans la hauteur de la Voie, un vaste pétase de feutre roux, au-dessous une flottante barbe blanche, un sayon brun, un bas de jambes nu, surmonté d'un brandissement de bâton menaçant. Quand le cri était exhalé, il y avait de subits attroupements, des êtres apparaissaient au seuil confus de boutiques, des têtes pointaient à des fenêtres où séchaient des toges et des tuniques rapiécées, un tumulte se faisait, brisé d'aboiements de chiens furieux et de piaillements d'enfants. Puis les groupes se dispersaient, et il ne restait que le vaste pétase fendant la Voie Suburane comme un navire rond, la barbe flottante, le sayon brun, le bas de jambes nu et l'énorme brandissement du bâton, écartant des soulignements de peuple qui débusquait des rues voisines.
+
+Cette obstination à crier il ne savait quoi, à des gens qui ne comprenaient pas davantage, rendait Amon un peu inquiet. Ce bizarre individu le suivait depuis l'Esquilin, troublant sa quiétude et son soliloque, quiétude et soliloque d'un homme qui a bien bu, bien mangé et écouté la lecture d'un poème de Zopiscus, et il se disait maintenant que ce pouvait bien venir d'une incantation du mystérieux Kreistos d'Atta, ainsi que, la veille encore, l'en avaient menacé Aristès et Nicodœmès.
+
+--- Dans certaines rues de Rome, le Kreistos d'Atta fait apparaître des êtres à allures bizarres, qui s'acharnent après les étrangers pour leur dévorer un morceau d'épaule crue.
+
+Et, machinalement, il avait un mouvement d'épaules, qu'il regardait à la dérobée, toujours sous le coup de cette menace. Surtout, le bâton l'effrayait. Le soir approchant, ce bâton avait une ombre gigantesque qui, l'atteignant de loin, sabrait les façades des maisons, faisait un léchement noir au-dessus des boutiques. Elle le touchait parfois, tantôt lui poussant les pieds, tantôt s'aplatissant sur sa tête, et, formidable, semblait vouloir l'arrêter sur place, le temps d'accourir à l'homme pour lui dévorer le morceau d'épaule menacée.
+
+Une chambre étroite de prostituée s'ouvrit devant Amon, qui vit le lit de nattes usées et polies, l'amphore, remplie d'eau pour les visiteurs, reposée à un coin, un miroir à main, quelques fioles de parfums sur une sorte de crédence, et, aux murailles, en fresques mangées d'humidité, des amours nus et des poursuites de faunesses par des faunes qui ne cachaient rien de leur sexe furieux. Il hésita, eut un tremblement à la fois d'émotion et de volupté ! Mais sur la porte, une jeune femme qui avait des anneaux aux oreilles, des colliers ballant sur un pan de gorge nerveuse et brune, le héla doucement, pour l'engager mieux descendit la chaussée, lui prit une main, l'emmena à elle, pendant que l'ombre du bâton, semblable à un grand mât, s'abattit juste sur son effarement.
+
+Rapidement, la courtisane ferma les volets de la cubicula qui ne reçut plus qu'un jour douteux de cour intérieure. Comme en cette obscurité grise il ne savait que dire, Amon lui demanda son nom :
+
+--- Cordula, pour te servir !
+
+Et, à lui s'enlaçant, elle l'attira vers le lit de nattes, couche commune de ses amants, en une ardeur de chair qui fit se pâmer l'inquiet Amon. Mais un grand bruit s'éleva au dehors, comme si une foule s'apprêtait à assiéger la chambre de Cordula ; un coup sourd, un coup de bélier qui briserait les portes d'une citadelle, fit éclater les volets. Ils se relevèrent abasourdis.
+
+--- Abomination de la désolation ! J'avais l'œil sur toi, pécheresse, et j'arrive à temps pour empêcher la fornication.
+
+Sous le brandissement du bâton, l'énorme pétase, la barbe flottante, le sayon brun ceint d'une corde, et le bas de jambes nues de l'être fantastique crevèrent par l'ouverture des volets pendant qu'une foule gouailleuse grossissait derrière, dans la rue baisée par un commencement d'occlusion du jour et d'approche du soir, rouge, cuivreux, ténébreux.
+
+--- Maglo, Maglo !
+
+C'était le vieil Helvète que la décontenancée Cordula désigna à Amon, qui le voyait pour la première fois. L'Egyptien trembla ! Subitement, se rappelant les menaces d'incantations par le Kreistos d'Atta ; épeuré des choses effrayantes dont longuement l'avaient entretenu à ce sujet Aristès et Nicodœmès, l'hôte momentané de Cordula se carra dans son diploïs, ouvrit une porte du fond de la chambre et parut sur le corridor. Mais celui-ci fut envahi par la foule qui le retint, ne sachant rien, ayant même comme une vague idée qu'Amon était un esclave fugitif, un voleur de l'autre côté du Tibre --- où vivaient tant de criminels hors de la puissance des lois, --- peut-être un misérable juif capteur de jeunes enfants qu'il faisait cuire, quelque chose enfin d'effroyable et de monstrueux. Et des mains s'aplatirent justement sur ses épaules menacées ; le poing d'un boucher s'appliqua à sa face ; dans la confusion des jambes nues, qui s'épaississaient autour de lui, un chien le tira par une extrémité de son diploïs, et des enfants, seulement vêtus d'une subucula, s'accrochèrent à la ceinture de cuir serrant sa tunique de dessous. On cria :
+
+--- A l'édile.
+
+--- Non ! au Tibre !
+
+Une pression se fit, ondulant de l'extrémité de la Voie Suburane en un accord furieux des assaillants, presque tous des habitants du quartier, marchands de viandes et de denrées, fabricants de chaussures, forgerons dont les enclumes basses supportaient journellement des coups de marteaux, boulangers et pâtissiers fort achalandés pour satisfaire la population toujours gourmande de Rome, tisseurs, drapiers et tailleurs de toges et de tuniques, reconnaissables à de longues aiguilles piquées à leur vêtement extérieur. Ils n'étaient pas indisposés contre Cordula, exerçant sa profession, avec bien d'autres femmes, au milieu d'eux, qu'ils connaissaient fort bien et dont plusieurs d'entre eux comptaient parmi ses amants d'une heure, mais contre Amon qu'ils n'avaient jamais vu et soupçonnaient d'un méfait. Mais une voix s'éleva, l'énorme bâton de Maglo décrivit ses évolutions, l'ombre interrogative s'allongea démesurément, serpenta et se désenlaça aux maisons, maintenant toutes rouges sous les reflets du soleil couchant.
+
+--- Frères, écoutez ! Frères en Kreistos, apaisez-vous !
+
+Et toujours le bâton, à l'ombre coupant la rue, se raccourcissant et se développant, se glissant, hypocrite, ou échelant, brutale, aux chéneaux des toits, embrassant de quarts de cercle tout le quartier et par instant le dévorant comme d'un coup de gueule ouverte. A une extrémité de la Voie, en un trou de feu, le soleil crevait, pourpre, comme un fond de chaudron rougi et battu à la forge, sans un nuage autour, en un délaiement cinabre qui fusait par ses bords et se liquéfiait lentement, avec des teintes verdâtres, des teintes glauques de mer tranquillisée, absorbant tout. Maglo se découvrit, debout sur une borne plantée devant la chambre de Cordula, sa longue face maigre mangée jusqu'aux yeux par sa barbe blanche, pendant que Cordula, assise sur le lit de nattes, gardait sa tête fine et presque exiguë dans l'une de ses mains où, au poignet, s'étoilait un bracelet expirant doucement dans de l'ombre.
+
+--- Frères, quand les apôtres, quand Pierre, Paul et Jacques, traversant les mers, vinrent à Rome, ils virent le Vice s'étaler, la luxure et la concupiscence voiler la divinité de Kreistos, et ils voulurent alors que les peuples entrassent dans la bonne voie.
+
+La foule avait écouté avec beaucoup d'attention les paroles de Maglo ; des nez sérieux de marchands se dressaient vers lui, des mentons raisonnables de fabricants se renfonçaient dans des plis de toges, comme si chacun se pénétrait de contrition au tableau du vice, de la luxure et de la concupiscence que l'Helvète allait dérouler. Mais, impitoyable, quelqu'un cria, en une agitation de son bras, qui était nu, en l'air :
+
+--- Tu es chrétien, vieillard, nous n'avons pas à t'écouter. Laisse-nous, l'homme, et va-t'en !
+
+Maglo, comme s'il n'eût pas entendu, reprit :
+
+--- Et les apôtres exterminaient le vice partout où ils le rencontraient. Ainsi j'ai fait. J'ai crié toute la journée à l'abomination de la désolation ; je vous invitais tous, hommes et femmes, habitants de Rome, à rentrer en vous-même, à renoncer au Démon, à vous incliner devant l'Agneau. J'ai voulu arrêter le péché. Pourquoi cette femme fornique-t-elle ? Pourquoi cet homme allait-il se souiller avec ?
+
+Et quoiqu'il ne sût ce qu'Amon, toujours vigoureusement gardé, était devenu, il le désignait au hasard de son formidable bâton dont l'ombre, par un écartement de maisons, s'enfonça toute droite dans la nuit commençante.
+
+--- Pourquoi cette femme donne-t-elle sa chair au péché, alors qu'elle devrait appartenir à Kreistos, qui l'attend dans les sphères du ciel éternel ?
+
+Mais le premier interlocuteur cria encore, troublant fort les nez sérieux et les mentons raisonnables, assistance attentive de Maglo :
+
+--- Cela ne nous regarde pas. Ton Kreistos n'a rien à faire avec la chair de Cordula !
+
+Un autre fit, en un tumulte d'épaules et de poitrines qui semblaient vouloir l'arrêter sur le seuil de la chambre, où Cordula continuait à s'apeurer, la tête dans les mains :
+
+--- Je m'appelle Scebahous, je vends du porc salé et je donne du porc salé à Cordula, pour sa chair dont j'use sans faire mal à personne, ce qui la contente et moi avec !
+
+Quelqu'un se révolta :
+
+--- Elle te recevrait, toi au si, si tu voulais d'elle, quoique tu sois vieux. Elle nous reçoit tous, Cordula !
+
+--- Moi, exclama Maglo !
+
+Et cette pensée d'être reçu par Cordula l'indigna tellement qu'il resta, le bâton droit, bouche béante, ne sachant qu'ajouter. Un grand ricanement courut. Des grognements éclatèrent. La foule, étant polythéiste, renvoya Maglo à Kreistos ; les nez sérieux et les mentons raisonnables l'abandonnèrent, n'ayant fort probablement rien compris à ce qu'il avait dit.
+
+Il voulut parler, mais d'un ensemble de poings qui s'ouvrirent irradièrent des fruits gâtés, des côtes de pastèques et des morceaux de courges ; quelque chose de sale s'accrocha à sa barbe, un projectile s'aplatit aux pieds de Cordula, qui se leva épouvantée. Les gens tranquilles s'en allaient, laissant Maglo en butte à de mauvais plaisants, quand accoururent de toutes parts des chrétiens, esclaves et libres, des métiers du quartier, qui avaient ouï des clameurs s'adressant à Kreistos. Des femmes intrépides arrêtèrent le bras des assaillants. Sautant jusqu'à elle, un homme prit Cordula par la main, la fit se sauver par la cour intérieure aux dalles rompues, encombrée de meubles pauvres, sur lequel s'ouvraient des portiques de pierre peints à la chaux jaune.
+
+--- Ah ! Ghéel, le méchant chrétien que ce vieillard. Toi, au moins, tu ne tourmentes pas les pauvres femmes.
+
+Et Cordula baisait les mains de Ghéel, qui la laissa à quelqu'un, probablement le Scebahous interrupteur de Maglo, aussi ardent que lui à la protéger, car il disait au chrétien :
+
+--- Sois tranquille ! Quoiqu'elle te reçoive pour rien et que je sois reçu par elle contre du porc salé, je ne l'en aime pas moins, Cordula !
+
+Ghéel débusqua sur le corridor où Amon, oublié dans la bagarre, attendait une accalmie pour s'enfuir. Ghéel reconnut l'Egyptien qu'il avait vu avec Atta le jour de la cérémonie du Temple du Soleil.
+
+--- Je te connais ; tu peux te fier à moi. Les Chrétiens ne veulent la mort de personne. Je t'accompagnerai tout à l'heure au bout de la Voie, si tu le veux.
+
+Et Ghéel dit ces paroles sur un ton attendri, car Amon lui rappelle le jour qui vit Madeh passer devant lui dans le triomphe du culte nouveau ; qui vit Madeh passer devant lui sans entendre sa voix qui l'appelait. Il se dit instinctivement que cet étranger lui parlera peut-être de l'ami oublieux, dont la destinée a fait un affranchi vêtu de soie et d'or, malgré que voué au Soleil, pendant que lui peine obscurément dans sa poterie. Ses yeux s'émeuvent ; le bon Amon le regarde, et leurs deux cœurs, discrètement, ont des effusions qu'ils ne s'expliquent pas, des effusions d'affinités lointaines, racines de deux tempéraments peut-être semblables.
+
+La foule s'éclaircissait : un manipule de soldats, courant la pique en avant, derrière un centurion le glaive au poing, acheva de la disperser. Les chrétiens entraînèrent Maglo qui se désespérait. Ce qui amassait en ce dernier un flot de bile mal contenue, était leur parfaite indifférence des prostituées, l'espèce d'acceptation qu'ils faisaient du Vice, montant dans Rome comme une mer de lèpre. Depuis son arrivée, il ne cessait de s'élever contre les lupanars et les tavernes emplies de gens de mauvaise vie ; il s'était rebellé contre l'Empereur adorant la Pierre-Noire, signe du Péché, il se refusait à mêler Kreistos aux abominations du Soleil ouvrant son temple à tous les dieux ; il appelait de nouvelles persécutions pour que la Foi se ranimât et que la pureté des premiers temps renaquît, et c'était le contraire qui se produisait. Les Chrétiens, du moins ceux qu'il connaissait, voulaient bien se défendre mutuellement, s'unir et s'entr'aider, mais ils restaient étrangers à ce que l'Empire faisait ; même, en cela, ne répugnant pas aux étranges idées du frère Zal, les ouvertures d'Elagabalus ne leur déplaisaient pas. Alors que les polythéistes s'indignaient de la disparition de leurs cultes au profit de la Pierre-Noire, les Chrétiens étaient d'une déplorable indulgence pour les vices de la chair, amnistiant les prostitués mâles et femelles parmi lesquels ils comptaient des frères et des sœurs, très malheureux, qu'ils ne rendaient pas responsables. Ils les disaient souvent poussés par la faim, préparés d'enfance à toutes les fornications par leurs maîtres, s'ils étaient esclaves, par leur milieu de corruption et de dégradation, s'ils étaient libres.
+
+14\.
+
+Ghéel et Amon, engagés dans la rue Neuve, se dirigeaient vers le Tibre dont ils voyaient se soulever de loin les plaques d'eau, jaunes comme des ventres de lézards. Ghéel ne voulait plus quitter Amon et l'accompagnait jusqu'à sa maison avoisinant la boutique de Typochronos. Et ils causaient ; le potier, tout effusionné, parlait de Madeh, son jeune frère de Syrie, maintenant prêtre du Soleil à Rome, affranchi du primicérius Atillius à l'influence duquel, disaiton, le monde devait l'intronisation du culte oriental. Mais qu'importait à Ghéel ! Ce qu'il poursuivait, c'était le souvenir aigu de Madeh, qu'à plusieurs reprises il était allé demander, mais vainement, à la petite maison des Carènes dont l'atrium, blanc de soleil, toujours gardait le singe glapissant, le crocodile pâmé et le paon rayonnant. Madeh refusait-il de le recevoir parce que lui, Ghéel, était chrétien, ce qu'il avouait à Amon ? Et il demandait à celui-ci s'il ne l'avait pas connu, lui qui venait de loin, qui était un étranger, presque de race syrienne, né Egyptien. Amon fit :
+
+--- Madeh ! Atillius ! Ils ont traversé la mer avec moi, débarqué à Brundusium, et nous avons fait route jusqu'à Rome, par la Voie Appia.
+
 ...
