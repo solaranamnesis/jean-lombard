@@ -840,4 +840,146 @@ Ghéel et Amon, engagés dans la rue Neuve, se dirigeaient vers le Tibre dont il
 
 --- Madeh ! Atillius ! Ils ont traversé la mer avec moi, débarqué à Brundusium, et nous avons fait route jusqu'à Rome, par la Voie Appia.
 
+--- Alors, tu lui as parlé, à mon frère Madeh ! Est-ce qu'il t'a causé de moi, de Ghéel, le potier ; de moi Syrien comme lui, qui le reconnus la veille du Triomphe d'Elagabalus ? Madeh me laissa espérer de le revoir chez lui, aux Carènes. Est-ce qu'il t'a dit cela, à toi ? Est-ce qu'il t'a assuré que je pourrais le revoir ?
+
+Et c'était une échappée de paroles attendries. Mais Amon secouait la tête mélancoliquement :
+
+--- Je ne lui ai plus reparlé depuis !
+
+Il se souvint, cependant, qu'Atillius l'avait arraché aux soldats qui le surprirent dans le fossé du camp, au bas duquel il écoutait les clapotements des crocodiles échappés du Tibre. Et il raconta son aventure à Ghéel, incrédule.
+
+--- Il est impossible que le Tibre ait renfermé des crocodiles, et qu'ils se soient enfuis par une branche coulant sous le camp. Qui donc t'affirma cela !
+
+Amon s'expliqua, parla d'Aristès et de Nicodœmès. Mais Ghéel revenait à Madeh, et, obstiné, questionnait l'Egyptien sur les vêtements, le son de la voix, les façons de marcher et de rire du frère de Syrie. Tous deux ne s'embarrassaient point à s'avouer que Madeh, prêtre du Soleil, appartenait à Atillius et pratiquait l'abominable culte de la Pierre-Noire.
+
+D'étroites ruelles béaient, aux maisons basses, dont les portes se dérobaient dans des trous oblongs de murailles moisies. Sur les rebords de fenêtres, pas plus grandes que des cuirasses, éclairant des carreaux crevés de papier huilé, des lampes atones fumaient. Ils passaient devant des tavernes aux plafonds gras, bruyantes de graillonnements, où des prostituées vieillies jouaient avec des esclaves et des voleurs. Parfois, un soldat ivre roulait à leurs côtés, et ils l'évitaient en enjambant un ruisseau épais charriant des ordures, des piments gâtés ou des pelotes de cheveux embrouillés, Ghéel, très libre de mouvements dans son sayon ; Amon se serrant le ventre dans son diploïs rayé et rentrant sa tête, coiffée de la calantica. Puis ils abordèrent une grève, qui semblait illimitée, au bord de laquelle pleurait le Tibre, tout noir, avec des traînées de lueurs venues de la ville qui s'illuminait.
+
+Cachée à demi par la rondeur du Vatican, une clarté s'irradiait ; puis, rousse, ronde comme un bouclier, la lune apparut, faisant saillir le serpentement du fleuve aux eaux coupées d'ombres coulantes, et de l'horizon, à droite et à gauche, émergèrent des édifices, des arcs, des colonnes déliées, pareilles à des mâts de galères, des ponts, des voies bordées de temples aux pronaos brillants, des étagements de maisons piquées de lumières, et, au bas du Capitolin, hargneusement couronné de l'Arx, un coin du Champ de Mars, infini.
+
+Tournant le dos au Palatin, ils se dirigèrent vers le Vélabre qui, très animé, fumait sous l'éclairement de milliers de lanternes en feuilles de corne, ou faites de toile de lin trempée dans de l'huile.
+
+C'était l'expiration de la première veille, et les rues s'emplissaient de gens, échappés aux repas du soir, qui se promenaient de long en large, les Romains de vieille roche très graves, les Occidentaux gesticulant, les Orientaux reconnaissables à leurs costumes voyants, mystérieux au milieu des groupes. Des esclaves se disputaient. Parfois, une lectique emportant un fonctionnaire impérial, abruti par la digestion, survenait, précédée de coureurs frappant ceux qui ne se rangeaient pas assez vite, et c'étaient des imprécations violentes, surtout quand la foule reconnaissait en lui quelque affranchi d'Elagabalus, hier encore ignominieux bateleur ou bien échappé de quelque infâme industrie. Alors des rixes éclataient entre Occidentaux et Orientaux, auxquelles s'ourlaient des paroles de tous les dialectes connus, qui finissaient par l'apparition de patrouilles donnant des coups de plat de glaive à tous.
+
+Les plus paisibles s'arrêtaient devant les tavernes, trouant le quartier comme les alvéoles d'une ruche. C'étaient, s'ouvrant sur les rues ou couverts de portiques, en des magasins de douze à quinze pieds carrés, des marchands d'étoffes de soie ou de laine empilées sur des étagères ; des confiseurs, des incrusteurs d'ivoire ou de nacre, des parfumeurs et barbiers, des débitants de drogues dont on racontait qu'ils faisaient avorter les femmes, et, aux environs des bains à cette heure fermés, des débitants de vin renfermé dans de grandes amphores de terre cuite ; des vendeurs de porc salé et des fabricants de boudins fixés aux plafonds en lignes verticalement immobiles.
+
+Sur le seuil de sa maison, qui était petite, avec une porte en saillie très haute qu'on atteignait par des escaliers, Ghéel quitta Amon non sans s'être promis de le revoir pour causer avec lui de Madeh. L'Egyptien mettait la main au marteau, et déjà le portier, enchaîné juste assez pour ouvrir la porte, entendant du bruit se levait, quand la foule grossit, puis, comme chassée par un coup de vent, s'enfuit vers le Forum, Amon, éperdu, submergé, roulait avec elle, pendant que, débusquant d'une rue trouble, apparaissaient des lanternes vacillantes, des éclairs de casques et de cuirasses et une confusion de gens à pied et en litière. On criait de tous côtés :
+
+--- Elagabalus ! Elagabalus !
+
+Une turme galopa dans la déclivité des voies, frétillante sous les écailles des hommes et des chevaux, pendant que les tavernes fermaient furieusement. Amon se trouvait au milieu du Forum, blanc dans l'éclairement lunaire, avec ses arcs de Septime-Sévère et de Titus arrondis dans l'atmosphère bleuâtre, les temples de la Concorde et de Jupiter, de Mars et de Saturne, du côté du Tibre ; en face, ceux de Castor et de Pollux, bordés de basiliques et de galeries sous lesquelles s'immobilisaient des statues d'empereurs et de dieux. Il y avait là des palais : le palais du Sénat et celui du Grand-Pontife ; aussi l'autel de Vesta, encerclé de colonnes, et la statue de Marsyas, près de la tribune publique. A leur gauche, le Capitolin se hérissait dans la roideur de sa montée et sa forteresse muette.
+
+Sur les marches des temples, gravissant le Capitolin, se pressant sous les portiques ou envahissant la Rostra, la foule hurlait, et la turme la chargeait précipitamment. Dans le tumulte de cent mille poitrines exclamantes. Amon stupéfait apprit que le jeune Empereur s'égayait ainsi la nuit à courir les mauvais lieux, après avoir fait précautionneusement le vide autour de ses vices prodigieux.
+
+Il voulut retourner, mais la foule refluait vers la voie Lata, dont la région se mourait au Forum, à droite de la colonne Antonine, et à gauche de la colonne Trajane. Sur les hauteurs Capitolines, des groupes disparaissaient ; d'autres, qui injuriaient l'Empereur, s'éparpillaient par la région d'Isis et Sérapis, serrant le mont Cœlius au sud et les monts Esquilin au nord.
+
+Le Forum vide à son tour, Amon put voir très distinctement, de la voie Lata, Elagabalus dans une lectique découverte, entourée d'autres lectiques éclairées de torches et de lanternes, et précédée de la turme dont les chevaux faisaient un piétinement saccadé sur le sol. A la tête des cavaliers, des cataphractaires, il crut reconnaître Atillius, le glaive au poing, dans sa fonction de primicérius de la Garde impériale.
+
+Quand celui-ci, toujours poussant la foule, donna ordre aux cavaliers de gravir la voie Lata, ce fut une longue exclamation de colère. Des milliers de poings se levaient, maudissant Atillius :
+
+--- Malheur à toi, patricien, qui nous fais charger par Elagabalus !
+
+--- Va-t'en ! Va-t'en ! Que celle qui t'a nourri te renie à jamais !
+
+--- Que viens-tu faire ici, Romain qui as vendu Rome à Avitus ?
+
+--- C'est toi la honte de l'empire.
+
+Mais Atillius restait muet sous la grêle d'injures, se contentant de lancer ses hommes qui frappaient autour d'eux du bois de leur lance. Mais Elagabalus restait vautré sur les coussins de sa litière, oscillant à la clarté de la lune roulant dans le ciel sur les épaules luisantes des porteurs.
+
+Amon ne pouvait croire que ce voyageur silencieux, son compagnon du navigium, qui, si mélancoliquement, silla en les emportant dans la mer Intérieure, cet officier, son sauveur des fossés du Camp des Prétoriens, fût le chef de cette turme sauvage aux chevaux voltant en charges brutales. Alors, lui revint en mémoire ce qui se disait tout bas depuis l'intronisation de la Pierre-Noire. La colossale débauche des deux sexes, l'amour mâle déifié par Elagabalus se donnant à ses affranchis et faisant rechercher les hommes les mieux conformés ; le mélange des dieux dans le même temple ; la disparition projetée, dont on s'épeurait, d'enfants des grandes familles devant être sacrifiés au Soleil, la protection du Kreistos et des Chrétiens laissés tranquilles par le pouvoir qu'ils soutenaient sourdement, grâce à de secrètes affinités ; enfin, la conquête de jour en jour envahissante de l'Occident par l'Orient, tout était attribué à Atillius. On faisait de lui une espèce de thaumaturge initié à des mystères terribles, maître de l'esprit du jeune Empereur par des incantations innomées, oublieux de sa race --- étant de naissance romaine, --- ayant juré d'anéantir les dieux de Rome, ses institutions, son peuple, au profit de la Pierre-Noire. Quelques-uns disaient que l'Orient prenait ainsi sa revanche de vaincu par la femme et l'homme prostitués, le rut universel qui dissoudrait bientôt l'empire, si une main énergique ne se montrait pas.
+
+Aux côtés d'Amon deux hommes se récriaient ; l'un :
+
+--- J'en atteste les grands dieux ! Supporteront-ils longtemps les profanations d'Elagabalus, et n'armeront-ils pas les légions pour le renverser ?
+
+Mais l'autre, avec une intonation de sauvage enthousiasme :
+
+--- Laisse agir la pourriture, citoyen, pour qu'elle emporte à jamais le corps. A quoi bon les légions quand la mort est là !
+
+--- Zal, reprenait le premier, tes paroles sont dangereuses. Je dis, moi, vieux Romain de race, à toi qui n'es qu'un Perse, fils d'esclave, que l'Empire finira misérablement, s'il se laisse dominer par les barbares vaincus.
+
+Zal éclata :
+
+--- Sache que les barbares vaincus applaudiront à la chute de Rome si elle doit périr. Quant à moi, citoyen qui sais mon nom, je me soucie peu de l'Empire, et n'ai rien à faire avec toi que je ne connais pas. Adieu !
+
+Zal tourna le dos à son interlocuteur qui se coléra :
+
+--- Je dis que tu es chrétien !
+
+--- Après !
+
+Et Zal, le bravant de sa tête fine d'exalté, se croisa les bras. Une voix fit dans la foule qui les entourait :
+
+--- Frappe donc, Carbo !
+
+--- Oui !
+
+Un poing énorme s'abattit sur Zal : du sang lui jaillit à la face. Sans se défendre, il joignait les mains, remuant faiblement les lèvres, attendant une autre violence, quand la foule, chassée à nouveau, se dispersa rapidement par le Viminal, laissant Zal comme en extase, et Amon, d'horreur pétrifié.
+
+Un cavalier galopa vers eux. Zal, la face en sang, très digne, se reculait quand, apercevant Amon menacé, il se retourna, lui prit le bras. Mais d'autres cavaliers accouraient, Atillius à leur tête. Amon se nomma tout haut :
+
+--- Moi, Amon, ton compagnon de voyage que tu connais bien !
+
+--- Va-t'en paisible chez toi, fit Atillius. Et, remarquant à la clarté de la lune le sang qui coulait sur la face de Zal :
+
+--- Et toi, qu'avais-tu besoin de rester là ? Retire-toi !
+
+--- C'est que je suis chrétien, dit Zal d'une voix extraordinaire de martyrisé. Les Romains tiennent à leurs dieux, mais je confesse Kreistos et accepte Elagabalus qui l'aidera à vaincre !
+
+Et il s'en alla, tout frémissant, suivi d'Amon, pendant qu'Atillius le suivait aigument du regard. Le Forum était désert ; les rues avoisinantes se découvraient, silencieuses, et, des Régions de la Ville, des rumeurs montaient, décelant la sourde colère de Rome contre le pouvoir impérial.
+
+Zal marchait toujours, sans plus s'occuper d'Amon, dont le pas se régularisait sur le sien. L'Egyptien aurait voulu aller avec lui, tant il se sentait triste dans ces rues fuyantes sous le poudroiement lunaire et montrant de muettes ombres de maisons et d'édifices. Plus Zal se rapprochait des hauteurs Esquilines, plus la solitude s'épaississait, à peine troublée par quelque passant ou quelque soldat qui butait de son glaive les bornes des voies. Mais du côté de la Subura, vers le temple de la Paix, voisine de la Meta-Sudans dont les deux gerbes d'eau droites et amincies comme deux barres de cristal, pleuraient longuement dans la nuit, les clameurs grossissaient et des jaillissements de lueurs s'échappaient comme d'un foyer d'étincelles. Amon ne comprenait plus. Perdu dans ces quartiers inconnus, il se disait qu'à retourner sur ses pas, vers le Vélabre, il risquait de rencontrer le cortège, interceptant cette partie de la ville.
+
+Un bassin bas miroitait, comme de l'étain en fusion, avec, à une extrémité, une tête de dieu dans une niche en triangle. Zal s'y lava la face. Amon le rejoignit, et, hésitant :
+
+--- Il t'a fortement blessé, n'est-ce pas ?
+
+Zal se releva, s'épongeant avec le coin de sa tunique.
+
+--- Ce n'est rien, fit-il, un peu d'eau fraîche étanchera le sang, et demain il n'y paraîtra rien !
+
+Et il s'en alla, mû par le désir farouche d'être seul. Mais Amon lui courut après.
+
+--- Je ne sais où passer pour aller au Vélabre que j'habite. Veux-tu m'y conduire ? Je connais des Chrétiens comme toi, et je te parlerai d'eux. Regarde-moi. As-tu confiance en moi ?
+
+Il parlait précipitamment, ne permettant pas à Zal d'hésiter. Celui-ci fixa l'Egyptien.
+
+--- Tu me parais citoyen paisible, répondit-il, et tu n'étais pas parmi ceux qui invitaient ce Carbo à me frapper. Mais n'espère pas retourner chez toi cette nuit. Ecoute !
+
+Et les clameurs, d'une effroyable puissance, roulaient en coups de tonnerre du côté de la Subura, à deux pas du Forum. Il s'y mêlait un bruit d'instruments sauvages qui effraya Amon.
+
+--- Vois-tu, fit Zal calmement, l'Empereur entre en ce moment dans les lupanars qui le fêtent, et c'est pour n'être pas troublé dans ses plaisirs qu'il a chassé les citoyens autour de lui. Si tu veux retourner au Vélabre, il te faudra parcourir un grand circuit et revenir par le Tibre. C'est toute une nuit de marche. Il te vaut mieux la passer dehors.
+
+Il disait cela indifféremment, et Amon remarqua que ce n'était plus l'ardent chrétien de tout-à-l'heure qui parlait. Alors il crut bon de lui parler d'Atta et de Ghéel.
+
+--- Deux chrétiens que j'estime, surtout ce Ghéel que j'ai connu il y a à peine quelques heures. Quant à Atta, il est fort savant. Tous les matins, à mon réveil, il est là, me parlant de l'excellence de mes dieux et de la puissance de Kreistos, qui est votre dieu à vous tous.
+
+Maintenant, incompréhensible, Zal s'agitait. Il avait ri amicalement au nom de Ghéel ; à celui d'Atta, il éleva les deux mains en un témoignage évident :
+
+--- Je jure que c'est là un faux chrétien, au cœur puant de vices, à l'âme noire de péchés. J'enlèverai son masque, un jour qui n'est pas éloigné.
+
+--- Eh ! quoi, tu doutes de sa vertu ?
+
+--- Il ferait monter le sang de la honte à la face de Kreistos, si Kreistos pouvait rougir. Il a des fréquentations avec toi, Gentil, il vit de ton aveuglement et te flatte et se laisse nourrir par toi, comme un chien et un pourceau qu'il est.
+
+Un silence. La lune au zénith. De l'Esquilin où ils se trouvaient ils apercevaient toute une partie de Rome sous une lumière blanche troublée de lignes grises. Le Tibre, au loin, faisait un serpentement énorme, dont les nœuds avaient des lueurs d'argent. Autour d'eux, les vastes jardins de Mécène aux végétations cendrées, s'immobilisant ; de l'autre côté, la masse, à plat du sol, du Camp des Prétoriens, le Vivarium, des remparts s'alignant jusqu'à la porte Capène, la campagne partagée par les voies Nomentana et Salaria, et l'horizon des collines diffuses bosselant le ciel.
+
+Du Vivarium, renfermant les bêtes emmenées de l'Orient par Elagabalus, soubresautaient de rauques gémissements. Zal étendit la main :
+
+--- C'est là-bas qu'ils dorment, les confesseurs de Kreistos. C'est là-bas que leurs cadavres sont couchés sous les arénaires. Si nous avons quelques années de paix encore, combien seront-elles punies par des années de persécution. Mais l'Agneau sait ce qu'il veut. Le monde lui appartiendra et Rome orgueilleuse ploiera sous le pied de Kreistos !
+
+Il tourna à droite, sans rien ajouter. Un lacet de ruelles aux maisons hautes desquelles s'échappaient d'épouvantables odeurs, se cassait de clartés hacheuses. A des encoignures, des temples fermés et des fontaines s'égouttant finement ; puis des carrefours, charbonneux de lampes placées devant des autels abandonnés ; des ombres de femmes en des trous de portes basses. La lune mettait ci et là des inondations blanches, d'où jaillissaient des portiques brisés, des places grandes comme la main, mordues d'escaliers de quelques marches menant à des maisons barricadées soigneusement. Une rue resserrée, qu'ils pouvaient à peine traverser de front, s'enveloppait de cette lumière lunaire, et Zal s'y engagea. Amon entendit un vague chant de femmes et d'hommes, comme sorti du sol même. Il s'arrêta. Mais le Chrétien lui prit la main.
+
+--- Que vas-tu faire, maintenant ? lui dit-il. Je ne désirais pas t'emmener ici, mais tu as voulu me suivre, et je ne puis manquer l'assemblée des miens. Nul ne te connaît, sinon Atta, s'il y est. Oh ! alors, je mettrai son âme de pourceau au dehors et cracherai dessus. Viens !
+
+Et comme Amon ne savait que dire, tant ce chant qui ne cessait pas l'inquiétait :
+
+--- A moins que tu ne veuilles t'en retourner seul au Vélabre ! Alors, adieu ! fit Zal.
+
+Amon le suivit. Ils se rapprochaient du chant, dont le rythme grossissait en tendresses inénarrables. Zal s'arrêta devant une porte lamée de fer fortement cloué, derrière laquelle quelqu'un devait être, car elle s'ouvrit doucement : un couloir se profila jusqu'à une muraille humide ; la rampe d'un escalier se présenta, à la lueur d'une lampe de terre cuite ; Zal descendit, suivi d'Amon qui, entendant souffler dans son dos, n'osa se retourner.
+
+15\. 
+
+Une petite salle, très basse, à la voûte en cintre supportée par des piliers carrés. Au fond, en une surface lumineuse ornée à fresque, une tête d'homme à barbe pointue, retombant sur une poitrine nue, d'où dégouttent des larmes de sang ; les bras en croix, le corps amaigri, affaissé dans l'inertie de la mort, avec, autour, deux figures ailées dans une teinte de vagues ; deux longs T palmés de feuillages symboliques s'élargissant au sommet, en pluie de lis adorables... Au plafond, mangé d'une demi-ombre, un grand agneau blanc, une baguette à la patte, frappant un rocher effusionnant d'eaux bleues qui embrassent la voûte, et dans lesquelles se baigne un autre agneau blanc baptisé par un troisième... Puis, au long des murailles éclairées de lampes ignorées, des ornements simples à couleur fondante ; des rinceaux d'une pureté vierge, sans contours violents ni enchevêtrements, séparés par des écussons rectangulaires que surmontent des urnes coiffées de fruits peints ; une floraison triomphale de portraits de Kreistos en buste, auréolés d'or jusqu'aux épaules, chevelus, blancs de peau, les yeux langoureux sur le vide, la barbe pointue, une main sur le cœur, l'autre tenant un livre ouvert, le tout comme nageant sur un fond d'étoiles immuables...
+
 ...
