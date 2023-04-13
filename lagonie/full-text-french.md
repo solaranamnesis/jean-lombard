@@ -1020,4 +1020,36 @@ Un autre : --- A ses yeux, Zal a manqué d'humilité en interrompant l'homélie 
 
 Un autre : --- La Foi vaut sans les œuvres. Pourquoi Zal, qui vient à l'assemblée de ses Frères et Sœurs, la trouble-t-il par une manifestation inopportune de sa confession à Kreistos ? Mieux ne valait-il arriver au commencement des prières et se fondre avec tous dans le sein divin de l'Agneau sans tache, que distraire son âme par les choses du dehors, la salir au toucher des Gentils et commettre ainsi le double péché de Curiosité et d'Orgueil. Mais tel a toujours été Zal : un serpent est en lui, qui rongera son cœur et en fera un prédestiné de Satan !
 
+D'autres : --- Il y a entre Zal et Severa des attraits que l'esprit ne peut expliquer sans la chair. Ainsi, lorsque Zal a montré sa face toute martyrisée, pourquoi Severa s'est-elle précipitée sur lui, au lieu de poursuivre son homélie écoutée avec recueillement ? Un sentiment pareil ne passe certainement pas inaperçu. Puis, comme le veut faire accroire Zal depuis longtemps, pourquoi étaler avec complaisance les abominations d'Elagabalus et des siens, et dire que Kreistos a intérêt à laisser agir cet insensé ? Profanation ! Blasphème ! Assimiler ainsi la créature au Créateur ! C'est, comme l'a dit le très pieux Atta, reconnaître la lutte --- condamnée et condamnable --- de deux Principes, rapetisser la Puissance divine et agrandir celle du Mal.
+
+Un grand cri, comme arraché o'une poitrine que l'on ouvrirait, et voilà Severa prosternée à plat devant Kreistos, et pleurant, la face cachée au sol. Les Fidèles, debout, étendant la main vers elle, comme pour la maudire, pendant que Zal, tout pâle, reste hésitant. Mais Atta s'écrie, arrogant, le col très haut, dure l'arcade des yeux qui brillent au-dessous en charbons d'homme de vice :
+
+--- Et toi, Zal, inclineras-tu enfin ton orgueil devant Celui qui racheta les hommes ; imiteras-tu notre Sœur, en perdition pour toi, ou resteras-tu inflexible dans le Péché ?
+
+Ah ! à ce son de voix, Zal bondit, et écartant les Fidèles, prend le poing d'Atta et l'entraîne de force au pied du Kreistos, qu'éclaire maintenant une faible lumière, d'un jaune obscur.
+
+--- J'en prends à témoin Celui-là qui nous jugera tous, que cet homme vit du Péché ; que ce faux Frère a l'âme noire comme le Serpent. A genoux, à genoux, Atta ! Voici Amon qui va témoigner !
+
+Et, lui serrant la gorge, il le force à s'agenouiller, pendant qu'Amon, que n'avait pas encore aperçu Atta, se fait petit, petit, et voudrait bien se dérober plus encore. Mais des fidèles le poussent vers Zal. Alors Atta, en un violent effort, s'arrache à ce dernier, et, renversant quelques Fidèles, s'échappe de la salle. Un bruit violent de portes refermées s'entend en haut, puis, dans le silence, les pas précipités d'un homme traversant la rue.
+
+Et Severa, relevée, essuie ses pleurs du bord de sa palla, en souriant à Zal qui joint les mains, les yeux à la voûte où se fondent les trois agneaux, où les ondes du rocher se brouillent en du noir fuligineux.
+
+Mais l'Assemblée se dissout. Un à un les Fidèles se donnent le final baiser de paix. Des serrements de mains expressifs, des tendresses longuement célées, des larmes furtives, des effusions muettes d'homme à femme dans les ombres de la salle, et comme un large embrassement d'âmes sur lesquelles plane l'Agneau et que protège Kreistos ! Seuls, restent Severa et Zal, et Amon, apoltronni.
+
+--- Adieu, Sœur, dit Zal à Severa, qu'il baise chastement au front ! Adieu ! J'ai anéanti l'imposture et confessé Kreistos. Quelles belles heures pour moi, Sœur ! Elles me rapprochent de Lui.
+
+--- Assez, assez, Zal, répond Severa. Ta fierté me ferait douter de ta bonté. Séparons-nous ! --- Et doucement quittant Zal :
+
+--- Tu m'es témoin, Fils de Dieu, que j'aime cependant cet homme par l'esprit et non par la chair !
+
+# 16\.
+
+Severa s'éloignait rapidement. La rue était toujours déserte, avec des changements d'ombre et de clarté. Mangée à un bord, la lune déclinante roulait dans le ciel, au bas duquel une bande jaune flottait.
+
+Zal ne disait rien et Amon songeait. Les bruits courant sur les sectateurs de Kreistos qui, à Alexandrie comme à Rome, occupaient depuis longtemps les curiosités polythéistes, allait-il y croire ? Ces confessions à voix haute ; ces baisers et ces larmes, et cette espèce d'amour ébauché entre l'extraordinaire Zal et Severa, si éloigné de ceux qu'en sa vie d'homme calme il avait vus jusqu'à présent ! ... Il n'osait y penser droitement. La fuite d'Atta, dès ouï son nom, l'étonnait. Il devait être bien coupable, Atta, car l'innocence ne se dérobe pas ainsi devant l'accusation ! Et il se promettait de le sonder à la première occasion.
+
+L'Egyptien marchait avec d'énormes lourdeurs aux jambes et des ensommeillements aux yeux. Il supputait mentalement les heures non dormies dans son appartement du Vélabre, grâce à cette aventure de la Voie Suburane, qui lui attira Maglo, qui lui fit connaître Ghéel, l'empêcha de se retirer à temps chez lui et, chassé vers l'Esquilin par Elagabalus, le fit assister au témoignage de Zal devenu son compagnon de nuit.
+
+Obscurément, il se disait que c'étaient des Chrétiens qu'il voyait partout. Ils avaient une colossale puissance d'expansion, et tout concours de peuple n'était pas sans eux. On avait pu jadis les jeter aux bêtes, maintenant on pouvait les molester ; grandissant sur le sol de l'Empire, ils pullulaient au point que chaque rue, chaque maison comptait son chrétien. Ils étaient faits aux injures et aux coups, comme Zal et Maglo. Ils acceptaient facilement ce qui colérait les adorateurs des autres dieux : l'intronisation d'une religion répugnant à l'Occident et la dissolution de l'Empire dont chacun s'effrayait vaguement. On les soupçonnait même d'appeler cette dissolution et d'y travailler sourdement. Pour lui, Egyptien, dont la patrie souffrit de Rome, que lui importait ? Même des mouvements de sympathie secrète le faisaient acquiescer à cette mort d'un Empire, mais il constatait ; il se laissait aller à reconnaître cet état de choses qui lui sautait aux yeux.
+
 ...
