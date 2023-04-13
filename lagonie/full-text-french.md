@@ -982,4 +982,42 @@ Amon le suivit. Ils se rapprochaient du chant, dont le rythme grossissait en ten
 
 Une petite salle, très basse, à la voûte en cintre supportée par des piliers carrés. Au fond, en une surface lumineuse ornée à fresque, une tête d'homme à barbe pointue, retombant sur une poitrine nue, d'où dégouttent des larmes de sang ; les bras en croix, le corps amaigri, affaissé dans l'inertie de la mort, avec, autour, deux figures ailées dans une teinte de vagues ; deux longs T palmés de feuillages symboliques s'élargissant au sommet, en pluie de lis adorables... Au plafond, mangé d'une demi-ombre, un grand agneau blanc, une baguette à la patte, frappant un rocher effusionnant d'eaux bleues qui embrassent la voûte, et dans lesquelles se baigne un autre agneau blanc baptisé par un troisième... Puis, au long des murailles éclairées de lampes ignorées, des ornements simples à couleur fondante ; des rinceaux d'une pureté vierge, sans contours violents ni enchevêtrements, séparés par des écussons rectangulaires que surmontent des urnes coiffées de fruits peints ; une floraison triomphale de portraits de Kreistos en buste, auréolés d'or jusqu'aux épaules, chevelus, blancs de peau, les yeux langoureux sur le vide, la barbe pointue, une main sur le cœur, l'autre tenant un livre ouvert, le tout comme nageant sur un fond d'étoiles immuables...
 
+Sur des bancs symétriquement placés, des hommes et des femmes séparés par sexes, pauvres et riches reconnaissables à leurs vêtements, qui ne retournent même pas la tête à l'arrivée de Zal et d'Amon, s'asseyant lentement.
+
+Une mélopée triste, brisée par endroits d'élans de mysticités, à laquelle se trame un thème qui, éternellement, revient comme le flot d'une mer grisâtre, s'adresse aux Kreistos dont les faces pâles se figent dans les voûtes, et semblent jouir des Fidèles qui sont là !
+
+Des pleurs de femmes et des sanglots d'hommes, des battements de poings à des poitrines vouées aux macérations, des clins de tête multipliés, et des prosternements, et des prières basses qui font un chuchotement continu, et des silences qui sont pleins d'anxiété !
+
+Le Kreistos du fond semble s'animer : ses chairs rosissent, son corps se gonfle comme sous un souffle de vie, et ses yeux, ses beaux yeux mourants, brillent en topazes allumées, et sa tête se relève, et ce ne sont pas des larmes de sang qui dégouttent de sa poitrine, mais des pleurs clairs, semblables à des perles roulant sur le sol ! ... Et les figures ailées se transforment en archanges cuirassés d'écailles d'or et brandissant éperdument une lance au bout de laquelle flotte une étoffe bleue, et les T s'envolent lumineusement en un détachement de feuillages, de palmes et de lis, comme des voiles blanches sur un océan illimité !
+
+Eclair d'un instant ! Et pendant que tout s'immobilise à nouveau, reprend la mélopée triste, brisée par endroits d'élans de mysticités, à laquelle se trame un thème qui, éternellement, revient comme le flot d'une mer grisâtre. Et ce sont des pleurs de femmes et des sanglots d'hommes, des battements de poings sur des poitrines vouées aux macérations, des clins de tête multipliés, et des prosternements, et des prières basses qui font un chuchotement continu, et des silences qui sont pleins d'anxiété !
+
+Un remuement de gens se rasseyant ; une méditation alourdie. Puis, sous le grand Kreistos en croix, une forme se détache, dominant la salle, jaune à la lueur des lampes.
+
+--- Frères et Sœurs, qui exprimera le tressaillement de nos âmes, lorsque nous acquîmes la certitude que l'Agneau usait, dans sa grâce infinie, de l'abominable corruption des temps pour la manifestation de son Verbe. Oui ! De ce vase d'iniquités qui s'appelle le Palais des Cæsars, de ce sépulcre de faux dieux s'élève la fleur divine, l'éclairante fleur de la Grâce qui va embraser le monde comme un feu d'amour purifiant. Bénissons-le, Lui ! Les persécutions expirent au seuil de l'Empire nouveau qui favorise Kreistos ; nos martyrs, couchés dans la plaine, pourront bientôt dormir paisiblement du sommeil de la Sainteté, dans nos Eglises, baptisées par l'Agneau !
+
+Et la femme, dont la voix ardente a des tendresses débordantes, regarde avec extase ce supplicié, Kreistos. Un silence ; mais Zal se lève :
+
+--- Frères et sœurs, les temps n'ont pas cessé de nous être inexorables. J'ai confessé Kreistos, ce soir !
+
+Et Zal s'avance, montrant subitement, toute blême, sa face tuméfiée qui jaillit en pleine clarté. Un cri d'effroi ! La femme s'élance sur Zal :
+
+--- Oh ! vivant, vivant ! Bien vivant ! Loué soit l'Agneau qui a vaincu le Péché, Zal !
+
+--- Si l'Agneau a vaincu le Péché, l'Amour impie de la Chair vaincra l'Amour ! fait une voix âpre, la voix d'Atta, n'ayant vu de cette scène que Zal et Severa.
+
+Et comme ni Zal ni Severa ne l'entendent, dans le tumulte de cette scène qui a fait momentanément oublier Kreistos, Atta ajoute, terriblement, en apercevant dans les Chrétiens présents des Occidentaux qui se refuseront volontiers à l'analogie entre Elagabalus et Kreistos, analogie qu'acceptent seuls les Orientaux comme Ghéel et ceux qu'il vit chez lui le jour de l'arrivée de Maglo. Et, sourdement, il agrandit la fêlure déjà sinuant entre eux, par une hardie accusation des deux Principes du Mal et du Bien. --- Zal inspiré par le Mal sous le couvert du Bien, --- dirigée contre celui-ci, et ainsi réveillant des malveillances qui ne demandent qu'à accabler son ennemi.
+
+--- Toujours la lutte des deux Principes, Zal, à laquelle tu te laisses aller comme un Perse que tu es. Tu diminues la bonté et la puissance de Kreistos, au profit du Démon.
+
+Mais Zal, mais Severa ne l'écoutent davantage, cependant que des Chrétiens branlent la tête et les laissent, délicieusement l'une tâtant la face de l'autre, de ses mains fines de femme qu'on dirait patricienne. Les Chrétiens regagnent leurs bancs. Zal se rassied auprès d'Amon, blotti au plus profond des coins de la salle, où maintenant des ombres descendent sur les Kreistos.
+
+Un Fidèle se dresse. En paroles entortillées, il rend grâce au Fils de l'Homme pour le commencement d'un martyre dans la personne de son Frère Zal. Mais il ne voudrait pas que les Chrétiens eussent espoir en l'Empereur Elagabalus qui n'est qu'un vase plein de vices, duquel ne sortira pas la F'eur de la Grâce, mais la Vipère effroyable du Mal.
+
+--- Il y a un commencement d'hérésie dans ce qu'a dit Severa, ajoute-t-il, et il le lui avoue avec la certitude, purifiée de tout orgueil, que, rentrant en elle-même, elle reconnaîtra l'éternelle Vérité.
+
+Un autre : --- A ses yeux, Zal a manqué d'humilité en interrompant l'homélie de Severa pour avouer avoir confessé Kreistos. Il a connu, lui, Dativus, des martyrs ayant souffert du feu, de la flagellation, des mines, et qui, privés de bains et de lits, avaient caché leurs témoignages avec soin. La main gauche doit ignorer ce que fait la main droite : les Chrétiens, quelque joie qu'ils en ressentent, n'ont pas à savoir si Zal a subi la persécution du Gentil, qui est affaire entre l'Agneau et lui.
+
+Un autre : --- La Foi vaut sans les œuvres. Pourquoi Zal, qui vient à l'assemblée de ses Frères et Sœurs, la trouble-t-il par une manifestation inopportune de sa confession à Kreistos ? Mieux ne valait-il arriver au commencement des prières et se fondre avec tous dans le sein divin de l'Agneau sans tache, que distraire son âme par les choses du dehors, la salir au toucher des Gentils et commettre ainsi le double péché de Curiosité et d'Orgueil. Mais tel a toujours été Zal : un serpent est en lui, qui rongera son cœur et en fera un prédestiné de Satan !
+
 ...
