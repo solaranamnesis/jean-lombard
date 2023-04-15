@@ -48,7 +48,7 @@ Le navigium égratignait, de ses rames cadencées, la mer saphirée, vaporante, 
 
 Ceux-là étaient un Romain, deux Grecs, un marchand cypriote, un Alexandrin, plusieurs Italiques revenant des ports orientaux. Quoique lassés d'un long voyage, des étapes de la côte, des nuits écoulées à se diriger sur les étoiles, ils avaient appris à aimer cette mer que maintenant ils quittaient à regret. Aussi, leurs yeux visionnaient de villes apparues sur les falaises et les plages, de temples sur les rivages, de marines coupées d'îles brûlées du soleil et déformées furieusement par des orages, et qui prenaient tous les tons, depuis le blanc d'argent jusqu'au rouge ardent, par les intermédiaires bleu et vert.
 
-Sous le regard du proreta qui, à l'avant, surveillait l'horizon circulaire, des matelots pesaient sur la vergue ; d'autres, par les balancines, tiraient la voile, et le navigium bondissait, le rostre droit à la côte invisible encore, sous l'attitude verticale des enseignes romaines que le capitaine --- le magister -- sur le pont avait fait arborer.
+Sous le regard du proreta qui, à l'avant, surveillait l'horizon circulaire, des matelots pesaient sur la vergue ; d'autres, par les balancines, tiraient la voile, et le navigium bondissait, le rostre droit à la côte invisible encore, sous l'attitude verticale des enseignes romaines que le capitaine --- le magister --- sur le pont avait fait arborer.
 
 La mer Intérieure --- pâle, verte, bleu sombre --- se mouchetait de vols d'oiseaux dont les ailes traînaient. Un ciel tout blanc à sa base, tout céruléen à son zénith, ci et là tigré de nues à marche lente, surplombait en un vide infini, et ainsi la marine avait une mélancolie, une douceur solennelle, une sorte d'amertume quiète qui presque ravissait.
 
@@ -1708,5 +1708,895 @@ Elle pesait sur lui de tout son corps au risque de rouler. Il la porta sur les �
 Elle sauta enfin sur le parquet, bien amusée, et, son bras à la taille de l'affranchi, elle lui proposa de se reposer sur elle, et même de le porter à son tour. Mais la portière s'entr'ouvrit : Habarr'ah parut, avec un rictus crevant ses dents blanches sur sa large face noire d'Ethiopienne rusée :
 
 --- C'est l'heure du départ, rester davantage serait tout compromettre. Tu es attendue ailleurs.
+
+--- Au Sénat-des-Femmes, dit Atillia ennuyée. J'aurais cependant voulu voir mon Frère.
+
+--- Ton Frère te verrait avec peine ici !
+
+Elle résistait, mais Madeh, plus sage, i'invitait à s'en aller. Ce départ lui fut d'un grand soulagement et d'un grand saisissement. Elle venait d'emplir son horizon de bruits, de rires et de gaîtés ; elle éveillait en lui des troubles qui à la fois le torturaient et le charmaient ; elle versait en son corps une chaleur énorme de vie et de mouvement. Même, ces offres de chair jeune lui sentaient bon ; c'étaient des échappées vers une soleilleuse nature d'arbres et de ruisseaux, dont il aspira longuement les senteurs.
+
+--- Je reviendrai, nous nous amuserons encore, et tu me porteras, et je te porterai, et nous jouerons aux osselets, et tu riras comme moi, lui cria Atillia, qui, en un saut de danse, disparut dans le cliquetis de ses joyaux, le froissement de sa stola et le glissement de ses sandales.
+
+--- Ne dis pas à ton maître que sa sœur Atillia est venue, conseilla Habarr'ah au portier qui saluait, ravi, alors qu' Atillia, au contraire, lui faisait :
+
+--- Dis à mon frère Atillius que sa petite Atillia l'a attendu et reviendra le voir.
+
+# 4\.
+
+C'étaient, entre la Voie Ardéatina et la Voie Appia, des villas se graduant très diversement, avec leurs divisions urbaines, rustiques et fructuaires, les premières renfermant des salles à manger et à coucher, des bancs, des promenades et des terrasses, les autres des logements d'esclaves, des étables, des celliers et des basses-cours. Vastes, ces villas avaient des jardins victorieux, d'où la vue se baignait d'air bleu, de verdures reposées, d'eaux fusant en des ravinets bordés d'oseraies et de cressonnières épaissies.
+
+Spacieuse, celle de Glicia, des M. Claudius Glicia, qui comptèrent un dictateur dans les fastes romains ! C'était maintenant, Glicia, un très riche patricien, qui, depuis vingtcinq ans, bougonnant et quinteux, s'isolait de tout, seulement pour soigner ses laitues et surveiller ses cochléaires.
+
+Il possédait des esclaves juste pour son service, un jardinier qui régulièrement taillait ses arbres, et une terre complantée de vignes s'enramèlant à un coteau qui s'érigeait d'un belvédère léger d'où Rome vaporait dans l'éloignement, avec un émerveillement de routes piquées de voyageurs, de soldats et de fonctionnaires, de villas s'étendant jusqu'à la Sabine, d'aqueducs, de temples, de tombeaux épars, et un bout jaune de Tibre se fondant, du côté d'Ostie, en un bout bleu de mer.
+
+Glicia se traînait sous le portique de son jardin miroitant d'un vivier à son milieu, que troublait une grande ombre de passeroses dressées en roseaux. Tl toussotait, quoiqu'on fût en plein été, ramenant vivement un morceau de sa toge autour du cou, et les mains croisées sur la tête, en un mouvement de désespoir. Devant lui s'étendaient des celliers et des greniers à tuiles roses, des bouquets de cyprès, des pavillons en lattes minces à l'ombre chère à ses siestes, puis s'échelonnaient des vignes crevant de têtes nues d'esclaves, droites dans le ciel. Il regardait tout cela, toujours toussotant de long en large, frileux et inquiet. Il appela, dans un bégaiement terrible qui fit ses yeux tout ronds :
+
+--- Rusca ! Rusca !
+
+Un vieil esclave accourut, avec une peau rose de face plissée, un crâne tout blanc, une tunique brune et des sandales de bois.
+
+--- Est-ce qu'il a achevé son repas, ce vieillard? Est-ce que nous allons subir encore un envahissement de ces gens-là ?
+
+--- Le vieillard a mangé, répondit Rusca. Il ne veut pas s'en aller. Ghéel n'est pas revenu. Zal n'a pas été vu depuis quelques jours. Les chrétiens sont bien à Rome, car ils n'approchent plus d'ici.
+
+--- Ils sont bien à Rome, fit dans un toussotement Glicia, qu'ils y restent. Moi, j'ai juré de n'y mettre les pieds que lorsque l'Empire appartiendra aux Romains et non aux Etrangers. J'ai repoussé les offres de Septimus, de Caracallus et de Macrinus ; j'étais avec Pertinax. Pertinax est mort, je ne veux rien. Qu'ils me laissent en paix ! Ce que tu me dis des chrétiens ne m'étonne pas ; ils s'entendent avec les empereurs syriens qui favorisent leur culte, et Rome leur appartient maintenant : ils le savent bien.
+
+--- Ce n'est pas ce que Maglo assure, hasarda Rusca, car il morigène Severa, qui, comme Zal, Ghéel et certains chrétiens qu'elle reçoit ici, croient qu'Elagabalus est envoyé par leur Kreistos pour les aider à renverser les dieux.
+
+--- Ah ! il n'assure pas cela, et Severa applaudit cependant à Elagabalus, cria aigument Glicia. Je le sentais bien, je devinais bien que Severa applaudirait à ce que les chrétiens qui l'influencent l'inciteraient à applaudir !
+
+--- Severa est bonne et faible, dit Rusca. Cela n'a pas de conséquence. Et puis, ce que femme veut, Jupiter le veut !
+
+Glicia branlait la tête et toussotait, les épaules rentrantes, le cou toujours pris dans sa toge. Mais un bruit de pas eut lieu. Derrière eux une ombre de bâton s'érigea, énorme, sur une ombre de pétase très large, aux bords tombant en ailes de corbeau. Et Maglo, qui avait mangé dans la maison de Severa, --- celle de Glicia, son époux --- émergea, le bâton en l'air, sa main libre élargie devant lui, comme pour les bénir.
+
+--- Vous êtes des adorateurs des faux dieux, leur fit-il. Alors, je n'ai plus qu'à m'en aller, qu'à secouer mes sandales de votre poussière, et à prier Kreistos pour vous.
+
+Il fit un demi-tour. Mais, se ravisant, avant qu'ils lui eussent répondu :
+
+--- Je puis vous catéchiser, vous éclairer et vous consoler dans le sein de l'Agneau que je vois à la droite, et l'Esprit planant sur Lui !
+
+Et, prenant Rusca pour Glicia, sans distinguer nettement la tunique grossière du premier de la toge fine du second, il ajouta :
+
+--- Severa, ton épouse, a les yeux ouverts sur la Lumière, mais il est malheureux qu'elle se laisse aller aux idées de Zal sur Elagabalus et ses abominations. Moi, Maglo, j'affirme que le Péché est le Péché, et que cet Empire, qui a des pieds d'argile, s'enfoncera bientôt, comme la Bête, dans la Mort.
+
+Glicia arrêta net un toussotement lui montant à la gorge pour crier :
+
+--- Alors, tu es de cet avis, toi, qu'Elagabalus n'a pas longtemps à dominer? Cela m'agrée, oui, cela m'agrée !
+
+Il répéta ces derniers mots, appuyé à l'épaule de Rusca ; c'était la première fois qu'on affirmait devant lui la disparition prochaine de l'Empereur. Maglo éleva son bâton, et, prophétique :
+
+--- Ce n'est pas seulement Elagabalus Antoninus, mais l'Empire, mais la Bête aux pieds d'argile qu'engloutira la gueule de la Mort. Je le prédis. La gloire de Kreistos s'assiéra sur la Bête, et son Eglise vivra éternellement, malgré le Péché !
+
+--- Tu veux dire, demanda Glicia, que l'Empire existera, mais sans l'Empereur ?
+
+--- Oui ! s'exclama Maglo, sous le coup d'une illumination, avec Kreistos à sa tête.
+
+Il éleva ses deux bras, comme un crucifié, la face renversée, le regard perdu dans le bleu du ciel à peine traversé de fuites d'oiseaux, puis, en aparté :
+
+--- Je les délie tous, ces Romains, Calliste leur évêque avec, de prédire comme moi le Triomphe de Kreistos dans l'Empire sans l'Empereur !
+
+Et il s'en alla, sans seulement saluer Glicia. A ce moment survint Severa, qui s'agenouilla devant Maglo, humble et attendrie.
+
+--- Je puis te bénir, sœur, dit le vieillard, mais non ton époux, adorateur des faux dieux et contempteur de Kreitos.
+
+Il disparut, après une imposition des mains, pendant que Glicia toussotait affreusement, avec un coup d'ceil irrité pour Severa, qui, s'approchant de lui, le soutint, attentive, inquiète, une main à son coude levé.
+
+--- Je sais bien que tu n'écouteras jamais les serviteurs de Kreistos et que tu n'ouvriras pas les yeux sur la Vérité, fit-elle doucement, mais il n'importe, tu es mon époux, et je te dois aide et amour.
+
+Dans ce mot : amour, il y avait une amertume voilée d'hésitation, une sorte de regret à le prononcer, qui fit dire à Glicia, toujours toussotant et repoussant la main de Severa :
+
+--- Aide et amour! Oui, pour ton Kreistos, ton Maglo, ton Calliste, ton Zal et ton Ghéel ! La loi romaine me donne droit de vie et de mort sur toi, et je t'en ai libérée en te laissant aller à leurs assemblées, en acceptant même ces gens-là chez moi. Tu ne songes pas à ton époux, parce qu'il est vieux, et qu'il ne veut pas de l'Empire, alors qu'avec ce Ghéel et ce Zal tu applaudis à ce qu'il fait. Mais cela m'agrée, cela m'agrée que ton Maglo ait prédit la mort d'Elagabalus et des empereurs qui ne sont pas Romains. Il a raison, ton Maglo, si c'est ce que j'ai compris de lui.
+
+La laissant là, suivi de Rusca, il s'enfonça dans le rond de soleil d'un sentier, non sans lui crier de très loin, en brouillant tout, dans une habituelle absence de mémoire : --- Oui ! il a raison ce Maglo ; il périra, Elagabalus, avec ce Ghéel, ce Zal et ce Kreistos, et tu regretteras les services que tu leur rends.
+
+Elle rentra, traversa des appartements aux peintures simples. Dans une pièce carrée, une vieille servante rangeait des étoffes : des toges à peine asséchées, des subuculas reprisées, un tas de loques que Severa faisait rapetasser pour des chrétiens pauvres. Car, l'épouse de Glicia ayant mis sa fortune au service des Frères en Kreistos, ils furent nombreux, ceux-là qui approchèrent leurs lèvres de la bonne coupe patricienne. Depuis que, dix ans auparavant, un confesseur bythinien l'avait immergée dans le Baptême, Severa se dévoua à Kreistos au point de laisser le quinteux époux se confondre avec le vieux Rusca, d'oublier la villa et de ne plus avoir pour cette maison, une gloire romaine, le coup d'œil de la maîtresse surveillant tout. Aussi, c'était pitié de la voir, la villa, s'effacer devant la splendeur des villas voisines, dont les possesseurs prêtaient à ta matrone si jeune encore, si belle, si attrayante malgré un air austère de veuve anticipée, des passions extraordinaires. Tous ignoraient la grandeur en même temps que la simplesse d'âme de Severa, sublime par l'illumination qu'elle donnait aux choses ; tous ne se disaient pas qu'aimante et ardente elle se privait chaque jour d'un peu d'elle, car, encore quelques années de ses générosités, et c'était la pauvreté pour elle et son époux !
+
+Elle s'était mariée à cet inquiet de Glicia, parce que sa famille, aussi de souche patricienne, mise hors service depuis un siècle par les Empereurs, l'avait voulu. Il y avait dix ans de cela, elle en avait quinze alors. A peine si Glicia l'effleura et la déflora. D'une nature portée aux mysticités, elle eût été une effrénée combattante de la Chair, mais, cette Chair apaisée dans les délices de Kreistos, endormie dans la charité, le renoncement, les bonnes sympathies pour les Frères, les larmes versées, les effusions tendres entre esprits qui se répondaient facilement dans l'atmosphère des assemblées, elle resta chaste, froide et comme insexualisée.
+
+Depuis que Zal l'avait gagnée à l'idée d'une catholicité poussée vigoureusement du fumier d'Elagabalus, il s'était formé un parti nombreux de mystiques, surtout orientaux, comme lui soutenant Elagabalus, qui ne persécutait pas les chrétiens, les laissait s'assembler, et, même, crier contre les Dieux. L'unité créatrice en Kreistos lui allait, comme corollaire de l'unité créatrice en la Pierre-Noire ; les deux cultes, après avoir délivré les nombreux polythéismes, les philosophies plus ou moins panthéistiques, se raccorderaient ensuite en un seul que, sectateurs de Kreistos et sectateurs de la Pierre-Noire, érigeaient en commun.
+
+Et ces idées occupaient maintenant Severa, se demandant pourquoi Maglo maudissait cet Empire et cet Empereur si favorables à Kreistos. Severa, et Zal, et Ghéel, et des milliers de chrétiens, pauvres de l'Aventin, de la Transtéverine et de l'Esquilin, riches du Ccelius, de la Région des Jardins et de la Campagne, voyaient dans les abominations de la Pierre-Noire non des obscénités, mais la pulvérisation des vieux dogmes, la dissolution des vieux cultes, la disparition du Péché, jetant son dernier souffle dans les horreurs de Sodome et de Babylone. L'avenir leur apparaissait au delà, bleu et clair comme un ciel de cristal, et une nouvelle Humanité rayonnait, à sa tête Kreistos, les trous de ses mains et de ses pieds laissant échapper le sang fécondant les Prospérités et les Quiétudes, les Amours éternelles et les Fraternités, levées en Fleurs touffues, dans le tabernacle de ses Eglises évasées comme des lys blancs aux coupes inaltérées !
+
+Tout cela tourbillonnait confusément en Severa en qui Zal revenait, tel que dans les réunions chrétiennes, surtout celle où sa face tuméfiée se dressa, blanche. Elle songeait à sa détresse quand, avec Maglo, dont il ne partageait pas les idées et pour ne point l'abandonner aux soldats, il alla au Camp ; à son empressement à se porter chez lui, à l'Esquilin, dans cette pauvre chambre de chrétien vivant de peu, ce jour inoublié où, sans l'assistance d'Atillius, des Galles l'allaient violenter. Elle l'avait revu depuis, toujours ardent, toujours mystique, avec le grand air royal de ses trente véhémentes années, car Zal comptait un roi de Perse parmi ses ancêtres, un roi glorieux qui fit jadis trembler la terre, et ce sang l'avait fait ce qu'il était : généreux, ténébreux, énorme de vie intellectuelle, audacieux et vaste de pensée.
+
+Elle cousait un vêtements de pauvre, avec, sous les yeux, cette ascension d'idées au travers desquelles flottaient la face de Kreistos et de Zal, tour à tour s'effaçant. Et elle n'eût pu dire laquelle des deux émergeait plus vivante et resplendissante, tant leur translation mutuelle était rapide. Elle ne parlait pas, pendant que l'ancilla comptait à voix basse d'autres vêtements : des toges de laine brune, des tuniques sans manches, des ceintures de cuir, des stolas et des pallas, des subuculas de lin et des lacernas avec leur cucullus, et qu'au fredonnement de sa bouche se joignaient de loin des paroles de Glicia, qui, revenu avec Rusca, disait, idans un toussotement sans fin :
+
+--- Oui, cela m'agrée, cela m'agrée, Rusca, que ce chrétien m'ait prédit la fin d'Elagabalus. Il périra, crois-moi, cet Empire de Severa, avec son Ghéel, son Kreistos et son Zal !
+
+# 5\.
+
+Atta errait fébrilement autour des Thermes d'Antonin et de Caracalla, animés d'un engouffrement de gens se poussant en des rires et des exclamations. Des individus glabres, une amulette noire au cou, entraient dans des salles et en ressortaient avec des baigneurs frais, générale. nent de beaux hommes, qu'on se désignait du doigt. Atta, qui n'avait plus Amon pour ressource --- l'Egyptien ayant disparu depuis six mois --- et était à jeun depuis deux jours, cherchait des yeux quelque personnage dont il eût pu tirer parti, quand de grands cris s'élevèrent autour de lui. Des gens couraient vers un attroupement, devant les portiques.
+
+Il alla vers le rassemblement, qui grossissait, pendant qu'à ses côtés, des bandes d'hommes poursuivaient de noms infâmes les individus glabres et les baigneurs qu'ils emmenaient, les accusant de se prêter à Elagabalus, qui faisait rechercher dans les thermes de Rome, les plus beaux hommes pour ses goûts abjects. Il approchait, et une grosse voix lui parvenait ; un bâton virait au-dessus des têtes, dans le soleil. La voix anathématisait l'Empereur, le bâton menaçait les curieux qui écoutaient.
+
+--- C'est certainement Maglo, se dit Atta parvenant jusqu'à Maglo, qui s'exclamait :
+
+--- Hommes, citoyens, je vous le prédis ! Les pieds de la Bête sont dans la Mort, et la gloire de Kreistos survivra éterne^ement au Péché.
+
+Atta lui prit le bras. En le reconnaissant, --- car Atta continuait à frayer les assemblées de chrétiens où Zal n'allait pas --- en le reconnaissant, Maglo laissa retomber son bâton :
+
+--- N'est-ce pas, frère Atta, que la Bête s'enfoncera dans la Mort ?
+
+Il se tut, son bâton fiché en terre, ses yeux rouges sur Atta. Comme il s'immobilisait ainsi, quelques-uns s'éclipsèrent, avides d'autres émotions. Puis Maglo et Atta furent seuls.
+
+L'Helvète posa sa main sur l'épaule de son Frère en Kreistos :
+
+--- C'est une prédiction, et je doute fort que l'Evêque Calliste et ses Romains en aient une semblablement inspirée.
+
+--- J'en doute fort moi-même, assura Atta sans trop savoir, et au hasard.
+
+Ils avaient quitté les Thermes, et devant eux couraient les rues populeuses de la Région Capène, que bordait la Voie Latine, à gauche de l'Aventin. Ils passèrent devant les nombreux réservoirs qui donnaient une grande fraîcheur à cette Région, traversèrent le Jardin de Prométhée, miroitant d'un lac tranquille, sans regarder les temples, surtout ceux, très sompteueux, de la Tempête et de Sérapis. Ils erraient sans but : Maglo pour parler de sa prédiction, Atta pour tromper sa faim.
+
+Au Palatin, sous des portiques, plusieurs individus, debout sur des bornes et tête nue, lisaient des manuscrits devant un public clairsemé, qui les écoutait en battant de la sandale sur le pavé.
+
+--- Ils lisent là des abominations, dit Maglo, qui, le bâton levé, se dirigea vers eux. Mais Atta, apercevant la barbe pointue sans moustaches de Zopiscus, qu'il n'avait pas vu depuis longtemps, retint le vieillard.
+
+--- C'est vrai, et surtout ce Zopiscus a écrit des blasphèmes contre Kreistos. Mais à quoi bon? Kreistos les vaincra tous. Laissons-les.
+
+Il l'entraîna, avec un sourd désir de ne le lâcher que pour un bon repas, problématique à cette heure, ou de l'accompagner chez le chrétien auprès duquel il pouvait se rendre, et qui, sûrement, les retiendrait à la cœna du soir. Maglo, comme s'il l'eût deviné, lui demanda alors, tout à coup :
+
+--- As-tu mangé? As-tu bu? T'es-tu réconforté comme les Fidèles de l'Agneau doivent se réconforter pour apaiser cette misérable chair ?
+
+--- Eheu ! non, répondit en soupirant Atta ; et j'attends depuis hier ce contentement de ma chair.
+
+--- Ce n'est pas comme moi, qui sors de chez Severa, laquelle m'a dressé une table. J'ai catéchisé son époux, qui s'appelle, je crois, Glosia.
+
+--- Non ! Glicia, affirma Atta, qui ajouta :
+
+--- Je n'ai rien mangé, te disais-je !
+
+--- C'est que Kreistos ne l'a pas voulu, fit Maglo. Et, revenant à sa prophétie :
+
+--- Vois-tu, ce Glosia ou ce Glicia a eu l'air tout joyeux de ma prédiction. Ce qui est à étonner est de voir Severa soutenant Elagabalus Antoninus, et Glosia ou Glicia ■ --- comme il te plaira --- demander sa mort. Ils ne s'entendent pas, Glosia ou Glicia et Severa.
+
+--- Ah ! Glicia applaudissait à ta prédiction, exclama Atta, devenu tout singulier.
+
+Et un projet extraordinaire, qui sourdait en lui depuis longtemps, le tint muet quelques minutes. Ah ! s'il le pouvait mettre à exécution, c'en serait fait des jours sans manger, et des injures des riches qu'il sollicitait, et des piétinements dans la boue des rues, et des humiliations du parasite qu'il était, parce qu'il n'avait ni fortune ni situation, quoiqu'un savant émérite, un grammairien, un philosophe, un écrivain très fort dans l'Apologétique, ce que nul ne déniait, malgré les ignominies de sa vie de misère. C'en serait fait de cette fièvre à rechercher constamment le gîte et le repas du jour, et aussi à éviter, dans les assemblées de chrétiens, qu'il dominerait tout à fait, la vue de Zal. Car, malgré tout, Atta, homme de l'avenir, était chrétien, mais d'une largeur spéculative et calculatrice, prête à céder très facilement la lettre pour l'esprit et frisant de très près l'Hérésie. Il l'était, sentant que Kreistos avait besoin, en son siècle, de hardis exégésistes et de directeurs des consciences, et exégésiste, et directeur, "il le pouvait être, pour peu que les événements le favorisassent. Ne pourrait-il atteindre un jour à la Chaire de Pierre, dont la puissance occulte devenait maintenant énorme, parce qu'elle dominait des milliers de chrétiens dociles, de chrétiens riches et de chrétiens pauvres, ceux-là soutenant ceux-ci, et cette situation prestigieuse ne l'arracherait-elle pas enfin de la poursuite journalière du repas et du gîte en le jetant dans un milieu d'offrandes abondantes, d'adorations et de soumissions concrétées en un bon lit, sous un toit solide, et des plats plantureux qu'il viderait jusqu'à son saoul? Et pour cela, que fallait-il? Rendre à l'Eglise un service tel, qu'en retour elle le mettrait en pleine lumière des Fidèles, en servant la faction de Mammaea --- car elle avait un parti, la mère d'Alexianus ! --- contre Elagabalus. Ah ! il était des chrétiens, parmi eux ce misérable Zal, assez insensés de s'imaginer que la Pierre-Noire, sans crainte, fraierait avec Kreistos et disputerait avec lui la puissance temporelle et spirituelle ! Non, cela ne serait ; il prouverait que ces suggestions venaient de la Bête et du Péché sous toutes les formes, même les plus séduisantes, que l'Eglise dissiperait.
+
+Et, comme son enivrement crevait en paroles au milieu desquelles surnageaient les mots de Bête et de Péché, Maglo, tout encore à sa prédiction, penché sur lui, lui cria à l'oreille, dans le tumulte du peuple roulant autour d'eux :
+
+--- Oui, oui, tu as raison, la Bête a les pieds enfoncés dans la Mort, et Kreistos dominera le Péché. Je l'ai prédit à Glosia ou Glicia.
+
+--- A Glosia ou Glicia, répéta machinalement Atta, dont la pensée suivait son cours.
+
+Et il se dit, pour donner une apparence pratique à son rêve : que Glicia, époux de Severa, était patricien ; qu'avec lui, d'autres patriciens attendaient que l'Empire fût secoué d'Antoninus comme une toge de sa poussière ; qu'avec ces patriciens, c'était un peuple entier à la suite de Mammaea, si Mammaea le voulait. Maintenant, ils marchaient le long des murailles du Palais des Caesars ; des végétations de jardins couvraient des blancheurs de colonnades éloignées, et des fenêtres cintrées s'ouvraient, avec des têtes de prétoriens casqués à leurs bords, regardant mélancoliquement la Ville ensoleillée, vautrée sous eux. Des portes basses tournaient par instants, avec un léger bruit de bronze : il entrait, il sortait des gens mystérieux, surveillés par d'autres gens apostés à des coins de rues voisines. Atta reconnut des sénateurs et des officiers déguisés, sans doute conspirant avec Mammaea.
+
+Qu'importait un échec? La vie, si misérable pour lui, lui pesait; il la risquait volontiers cette fois-ci, quoique jusque-là il fût terriblement peureux. Alors, bravement, après avoir quitté Maglo, qui poursuivait son chemin sans comprendre pourquoi il voulait pénétrer là, il s'insinua par une des portes, la tête à demi couverte d'un morceau de sa toge. Quelqu'un l'arrêta, qui était vieux et qui sortait.
+
+--- Où vas-tu?
+
+--- Voici, fit Atta, et il bredouilla un symbolum de fantaisie, un mot de passe que le vieux ne comprit pas, heureusement à demi sourd. Il fit signe à un autre qui se promenait comme un nomenclateur ennuyé, lequel fit un geste du bras à un troisième placé derrière lui, devançant un quatrième, en des profondeurs de jardins soigneusement entretenus, peuplés de statues et semés de bassins d'où s'épointaient des sagittaires et des roseaux.
+
+Ils le laissèrent passer, vaguement étonnés de cette longue figure mal rasée de parasite, dont la tunique noire perçait sous la toge trouée, souvent entrevue aux abords du Palais les jours de réceptions, supposant que cet homme avait des choses importantes à dire, et, après l'avoir fouillé, pour lui découvrir une arme qu'il ne possédait point, ils le firent entrer dans une salle menant à un couloir, débusquant sur un atrium, et d'autres salles, d'autres atriums, qui émerveillèrent les Brundusiniens une année auparavant, maintenant muets dans leur grandeur et leur solitude s'entrevirent pour Atta. Il n'en était pas ébloui, droit et fier comme s'il les eût habités depuis sa naissance, se répétant, dans une grande espérance de réussite, les paroles qu'il prononcerait devant Mammaea, au cas où il serait reçu par elle.
+
+Il était dans le Gynécée, deviné à des éloignements de femmes dont les voix lui parvenaient, claires et sonnantes. Toujours de grandes salles, et des portiques, et des péristyles, et des atriums, et des statues, et des vases sur des socles, et de hautes tapisseries aux dessins gigantesques, et des revêtements de carreaux émaillés étalant des mythologies noyées d'or. Un esclave, grand et gros, le prit par la main et le fit descendre, puis monter des marches étouffées et parcourir un labyrinthe d'appartements obscurs, où il se serait égaré tout seul. Il lui disait :
+
+--- C'est pour sa Magnificence et sa Sérénité, la mère du Csesar, que tu viens ?
+
+Il clignait des yeux et serrait les dents, comme prêt, --- s'il avait dit non --- à le broyer dans ses bras ou à l'égorger de son poignard passé à la ceinture dans une gaine de bronze ! Mais Atta répondit fermement :
+
+--- Oui ! esclave ! C'est pour sa Magnificence et sa Sérénité. J'ai des secrets à lui confier.
+
+Alors, l'esclave l'emmena plus vite, sans rien ajouter, jusqu'à une pièce étroite qu'il referma dans un grand bruit d'airain, le laissant seul ; devant lui, un thronus aux bras en ailes d'un sphinx d'or dont le dos formait le siège, sculpté symboliquement.
+
+# 6\.
+
+Un glissement de pas, puis une porte s'ouvrant ; et, resplendissante et blanche, avec un bandeau élargi de pierreries à la chevelure noire ramassée en volute, Mammaea !
+
+Elle s'assit, les bras appuyés aux ailes du sphinx, fixant clairement d'yeux de femelle fauve, que l'austérité de ses gestes rendait terribles, Atta, qui, se jetant à plat, baisa le bout de ses sandales brochées d'or et guillochées d'améthystes violacées. Au contraire de Sœmias, qu'il avait souvent vue en public, la mère du Caesar n'était point fardée, ni vêtue impudiquement ; mais, grande et simple, elle paraissait plus redoutable, surtout avec son regard fixe, plein de pensées.
+
+--- Tu avais à me parler en secret ; qui es-tu ? que fais-tu ? Parle et j'écoute, dit-elle lentement. Et sa voix était calme et mâle, et de sa main, par derrière, elle entr'ouvrit une tapisserie qui laissa voir, en une pénombre, l'esclave géant, immobile, les deux mains retenant à la nuque son poignard, dont le fil faisait une coupure de cristal.
+
+--- Oui, j'avais des choses importantes à te dire, dit Atta qui se relevait. Qui je suis ? Je suis chrétien ! Qu'est-ce que je fais? Je veille sur toi! Je viens t'offrir l'aide des chrétiens pour sauver ton fils et te débarrasser d'Elagabalus.
+
+Il se disait que, n'ayant rien à ménager, la meilleure diplomatie consistait à ne pas avoir de diplomatie. Mammaea accepterait ou refuserait, sans circonlocution aucune, et ce serait plus vite fait ainsi. Et la faim, qui entièrement le dévorait, lui coulait une espèce de fièvre au sang, l'amenant à ne pas regretter, afin d'en finir au plus tôt, --- si telle devait être sa fin, --- le coup de poignard de l'esclave. Elle lui donnait une grande acuité de vision, une espèce de supériorité d'imagination touchant au coup d'œil du génie. Et, comme Mammaea, les lèvres immobiles, restait là sans parler, avec une sorte de défiance, il éleva la voix :
+
+--- Oui, nous sommes des milliers, du peuple, des esclaves et du patriciat, qui appelons la fin de cet Empire avili, dont ton fils est la victime sainte ! Nous sommes des milliers qui voulons la Vertu et la Bonté, là où régnent le Mal et la Fourberie. Le monde souffre, Magnificence, des violences du fils de ta sœur, et il désire celui que des présages désignèrent comme Auguste et Empereur. Te rappelles-tu le jour où, dans le Temple d'Alexander le Macédonien, ton ventre accoucha de l'enfant? Une étoile de première grandeur brilla sur Caesarea, et le Soleil s'entoura d'une auréole ; une vieille femme vint t'apporter un œuf pourpre, pondu par un pigeon ; la nourrice s'appela Olympius et le nourricier Philippus. Celui-là qui a de pareils présages sur la tête est Frédestiné ! L'aide que je viens t'apporter a la puissance du levier. Sache qu'il nous est loisible, par la parole discrète à l'oreille des hommes et des femmes, de créer pour toi et ton fils un courant de sympathie irrésistible, s'épandant à travers Rome et les provinces, et mystérieusement ébranler celui qu'Elagabalus peut encore éblouir et leurrer. Il nous est familier d'ameuter les nôtres aux jours de spectacles, durant les fêtes publiques dans le camp des soldats, et de paralyser les résistances de l'Impur qui veut la mort de ton fils. Vois-tu, je t'apporte tout cela, et ne te demanderai rien, rien sinon la paix pour Kreistos, la sécurité pour mes Frères, et la confiance en l'esclave qui ose te parler !
+
+Il s'arrêta, les mains jointes, et comme Mammaea restait muette, il reprit. Maintenant, il parlait de Kreistos, qui surajouterait son Eglise à l'Empire, et l'absorberait ; des siècles à venir qui verraient, non l'Empereur, mais le Prêtre de Kreistos, à Rome, en robe blanche, porté sur un trône d'or, et vénéré plus que tous les pontifes réunis ; des peuples venant baiser ses sandales et se sanctifiant dans le sang de l'Agneau. La convoitise des honneurs ne l'avait point poussé vers elle, puisque, par avance, il ne voyait que le Règne et la Loi de Kreistos, mais il était las, et le monde avec, des ignominies d'Antoninus Avitus, et mieux valait, certes ! réunir la Vertu de son nom à celle des chrétiens pour renverser l'Empire immonde que la Nature répudiait de toutes ses voix. Le monde, alors déblayé, verrait à qui se donner, à l'Empereur que son fils devait être, avec ses dieux et ses pontifes, ou à Kreistos, des Ames définitivement vainqueur! Elle ne le comprenait pas trop, tant cette mysticité lui était étrangère, quoique, par les conseillers de son fils. Ulpianus et Sabinus, Venuleius et Modestinus, personnages graves creusant fort avant la conspiration, elle fût au courant des doctrines de Kreistos. Une chose la touchait, les présages désignant Alexianus à l'Empire que lui rappelait Atta. Elle vit l'Enfant, qui --- ayant quitté la robe prétexte --- n'était plus l'adolescent Alexianus, mais le viril Alexander, battant la terre du sabot de son cheval, avec des hordes armées chassant le Perse et poursuivant le Germain, montant au Capitole sur un char traîné par des éléphants, magnifiant les Jeux du Cirque devant plus de cent mille spectateurs, et dominant les Sénateurs et apothéose dans 1 Impérialat et l'Augustat, et elle-même dirigeant occultement le monde par lui, non avec la fébrilité de Scemias, mais avec la sagesse de la matrone soigneuse de son foyer!... Elle eut des battements au cœur et sa face remua :
+
+--- J'accepte ton aide. N'oublie point le bel Alexianus, devenu viril, qui est présentement Alexander. Edifie de tes mains l'Empire futur. Avec toi, ce sont des milliers de Vertueux et de Forts que les horreurs de la Pierre-Noire n'émasculeront jamais. Vois-tu, c'est la mère de l'Enfant qui t'applaudira !
+
+Elle se leva, lui sourit grandement, et, comme Atta se jetait la face au sol pour la laisser passer, elle lui fit :
+
+--- Lève-toi. Je me souviendrai.
+
+Il était seul, déjà l'esclave entr'ouvrait la portière pour l'emmener, quand elle reparut. Ayant vu Atta mal vêtu et maigre, elle s'était dit qu'il avait besoin d'être secouru, et elle revenait avec des auréus, qu'il refusa vivement :
+
+--- Je ne suis pas venu pour cela ! Non ! Non !
+
+Il les refusait, et il les désirait, se disant que cet or lui permettrait de vivre quelques mois encore, jusqu'à la décisivité des événements. Mais Mammaea, oubliant son impassibilité, lui prenait le bras et glissait, dans un pli de sa tunique noire, les auréus, qui y tintèrent, nombreux.
+
+--- Reviens quand Elagabalus chancellera, quand son Empire commencera à crouler. Ton Kreistos et mon Alexander attendent d'être enfin les seuls maîtres du monde !
+
+# 7\.
+
+Des gens couraient vers les Portiques de Livie, où une vigne s'enroulait, puissante, grasse et dans une pluie de feuilles larges, jusqu'aux toits gigantesques dominant, avec les quatre Tours du Chcragium et l'obésité du Colosseum, la Région d'Isis et Sérapis, fourmillante, aux dix horreas ou greniers publics, aux vingt-trois pistrines ou boulangeries, aux quartiers de la Fortune Voisine, de la Ruelle, des Constructeurs et de la Laine. On y parvenait par la rue de la Tabernole, entre le Cœlius et l'Esquilin. Des thermes et des bassins, dans cette Région ; le Nymphéum, qui avait été le Grand-Bain de Claude, et les thermes de Titus et de Trajan, s'ornant d'un temple d'Esculape ; puis l'Ecole des Gaulois, le Camp doublement étage en amphithéâtre des soldats de Misène, la Tête de la Subura, les œdicules de la Bonne-Espérance, de Sérapis, de Minerve, d'Isis, entre des maisons monumentales, de marbre et de granit.
+
+Ceux-là qu'on voyait étaient de jeunes patriciens, sur la pointe des pieds marchant, en des mouvements de ventre qui ondulerait, aux cheveux roulés ou crêpés au fer, ruisselants d'huile parfumée. Comme on était aux ides de novembre, au lendemain du grand festin du Capitole, où Elagabalus parut dans un char traîné par des cerfs, --- ce qui ébaubit les Romains --- ces jeunes patriciens, contre un problématique froid, s'entouraient le cou de mentonnières en laine et se lamellaient les cuisses de bandes d'étoffes.
+
+Quelques-uns portaient des psenules retenues sur la poitrine par des fibules d'argent, avec un capuce pluché de diverses couleurs ; d'autres, des toges aux plis savants sur des tuniques à manches brodées ; d'autres n'avaient point de ceinture à leur robe très longue, rayée de haut en bas ; d'autres étaient chaussés de souliers écarlates sertis de pierreries, a l'extrémité en pointe.
+
+D'autres apparaissaient, salués par des applaudissements espacés, qui avaient l'air austère, la face rasée, les yeux roulants d'inquiétude, et qui agitaient dans leurs mains maigres des feuilles de peau amincie, enroulées autour d'un bâton au bout duquel pendait une bossette de bois, de corne ou d'os.
+
+D'autres approchaient, avec également un air austère, une face rasée et les yeux roulants d'inquiétude, mais qui, n'agitant rien du tout, se contentaient de passer silencieusement sous les regards des jeunes patriciens, lesquels ne les applaudissaient pas.
+
+D'autres, qui n'avaient ni l'air austère, ni la face rasée, ni les yeux roulants d'inquiétude, se poussaient, avec des remuements d'épaules, des regards pâmés, des bouches en cul-de-poule, des façons discrètes de marcher et de parler, des enthousiasmes et des exclamations, surtout en écoutant ceux qui n'agitaient rien du tout, dont certains propos semblaient les faire s'évanouir de ravissement.
+
+Quand les Portiques furent encombrés au point que les passants durent se détourner de la voie, il se fit une sorte de tassement de gens qui se veulent placer à l'amiable, et alors parurent, juchés sur des escabeaux alignés sur un seul rang, les individus aux feuilles de peau dont les bossettes pendaient mélancoliquement.
+
+Ils dominaient les autres, qui levaient le nez, renflaient les épaules, épointaient leur capuce ou se capitonnaient le cou de leur toge, et ces derrières, et ces dos de gens faisaient un gros ballonnement d'étoffes blanches embrassant les Portiques de Livie sur une grande étendue.
+
+Enfin, la voix d'un de ces hommes austères, rasés et inquiets, s'éleva, menaçante, ironique et froide. Installés au premier rang, ils avaient, pour les possesseurs de rouleaux, une attitude de sévères pédagogues prêts à retenir le Vers dans la morale, la vertu et la tradition des mètres saphiques, asclépiades, glyconiques, alcaïques, falisques, archiloquiens, ïambiques ; à l'emmitoufler comme s'emmitouflaient les porteurs de capuces et de mentonnières, à le geler comme ils étaient eux-mêmes gelés, à verser dans l'Ode, l'Epode, le Dithyrambe, la Satire, l'Elégie et l'Epître, la juste chaleur pour qu'ils se tinssent faiblement sur leurs pieds.
+
+Car, ceux-là qui, de leur escabeau, se dressaient comme des stylites avec des rouleaux dans leurs mains maigres, étaient des Poètes, et les autres, à l'attitude de pédagogues, étaient des Critiques ; et ceux qui s'étaient pâmés à écouter ceux-ci étaient des admirateurs de Critiques et des contempteurs de Poètes ; et les autres étaient à la fois des partisans de Poètes et de Critiques, et tous étaient là pour prêter une oreille attentive à la lecture des œuvres des premiers, et aux observations sages, mesurées, discrètes, sagaces, fines, intelligentes --- surtout intelligentes ! --- des derniers.
+
+Donc, la voix d'un homme austère, rasé, inquiet et nullement applaudi, fit :
+
+--- Commence à lire posément, Oifellus, que nous t'écoutions, nous, les gens de Goût aimés des dieux !
+
+La voix d'un autre homme austère, rasé, de plus loin, impérieuse :
+
+--- Mouche-toi avant tout; crache bien, Scceva, que ta voix soit claire pour bien saisir les inflexions de tes Vers !
+
+Une autre voix, très grosse dans le silence de tous :
+
+--- Ne remue pas, tiens la main gauche à ton cœur, penche le front modestement, n'aie aucun orgueil, et surtout reste vertueux, Coranus ! Nous consentons à t'écouter !
+
+Une autre, irritée :
+
+--- Pourquoi ta barbe pointue sans moustaches, Zopiscus, pourquoi te distinguer? Vois-nous, rasés quoique austères et inquiets comme notre vertu l'exige. Cela est blâmable. Une barbe sans moustaches repousse la Muse qui approche si facilement de la face rasée.
+
+Alors, plusieurs contempteurs de Poètes et admirateurs de Critiques :
+
+--- Calvisius a raison. Nous ne pouvons souffrir la barbe pointue sans moustaches de Zopiscus dont le Poème est exécrable à le juger ainsi. Va-t'en ! Va-t'en, Poète, qui ne sauras jamais raser ta face comme les autres !
+
+Mais les jeunes patriciens répondirent aux contempteurs :
+
+--- Qu'est-ce que cela vous fait, que Zopiscus ait une barbe pointue dont la moustache reste absente de ses lèvres ? Si cela lui plaît, à lui ! La Muse n'a rien à voir là, et il nous est d'avis que mieux vaut un bon Poète avec une barbe sans moustaches qu'un mauvais avec une face rasée !
+
+--- Blasphème ! blasphème, exclama celui que des admirateurs de Critiques avaient appelé Calvisius. La Muse est souillée, Apollon est nié, Pégase est couché sur le flanc, la Poésie est morte, grâce à la barbe sans moustaches de Zopiscus.
+
+Alors s'élevèrent des colloques très vifs. Les uns voulaient que Zopiscus allât se faire raser immédiatement, les autres qu'il restât, pendant que les Poètes et Zopiscus lui-même attendaient patiemment la fin de l'orage, debout sur leur escabeau, une main serrant dignement le rouleau, l'autre au cœur, les yeux dressés vers les frises, et tout le corps roidi.
+
+Il y eut une accalmie : Zopiscus resta. Un Critique cria dans l'apaisement :
+
+--- Nous vous écoutons, Poètes, lisez !
+
+Subitement, un bourdonnement simultané de Poètes lisant dans leur rouleau ! C'étaient des hymnes à Jupiter et à Bacchus, des odes à des maîtresses ou à des particuliers. Offbellus larmoyait une Elégie sur les charmes de Tibur ; Scœva scandait très vite une Epode sur l'Amitié; Coranus luttait avec un Poème sur la Navigation. Quant à Zopiscus, il plongeait le nez dans son Poème de Vénus, et nul ne comprenait à ce qu'il lisait, quoiqu'il eût un grand air de Poète supérieur à tous.
+
+Les auditeurs avaient ouvert la bouche et levé le nez ; puis, tournés à demi, essayé de saisir les Vers qui s'enchevêtraient, voltaient, tourbillonnaient, roulaient, coulaient de la bouche des Poètes en cascades claires de mètres corrects. Ils replaçaient les pages de leurs rouleaux, et quelques impatients s'en allaient ; les rangs se clairsemaient ; mais les Critiques ne remuaient pas, férocement décidés à écouter jusqu'au bout, pour ramener les Poètes aux saines limites de leur Goût, d'après eux le Goût universel !
+
+Quelques auditeurs se plaignant de ne pas comprendre, les Poètes relurent plus haut, en un bourdonnement colossal, semblable à une eau glougloutante. Et, s'animant peu à peu, ils gesticulaient, ils remuaient la tête et avaient des poses inspirées, des yeux qui ne roulaient plus d'inquiétude, mais d'enthousiasme, et un air allumé par le génie du Vers. Mais cela ne les faisait pas comprendre davantage, car ils lisaient tous ensemble, au point que d'autres auditeurs s'en allèrent, avec les Critiques les laissant seuls.
+
+Des curieux s'étaient rapprochés ; parmi eux, un cavalier casqué et cuirassé, qui, sans plus de gêne, poussa là son cheval. Et, plus les Poètes lisaient, plus il les regardait, d'abord avec attention, ensuite avec stupéfaction, enfin avec la plus grande indignation. Les Poètes continuaient à lire très vite, toujours le nez dans leur rouleau, ou bien les mains en l'air, d'Inspiration ! mais sans voir les auditeurs autres que les Critiques desquels ils espéraient des encouragements, des bene, des euge, des pulchre, des belle ne coulant pas de leur bouche pleine de Goût, ou des couronnes qu'ils ne leur envoyaient pas. Les Critiques gardaient les lèvres serrées, les poings fermés sous leur menton méditatif, avec des coups d'yeux terribles vers les Poètes, dont quelques-uns, par instants, avaient des tremblements subits.
+
+Cela dura une heure près, et la lecture interminable ne s'achevait point. Le cavalier avait une peine inouïe à retenir son cheval, qui ruait à droite et à gauche jusqu'à faire un grand vide autour.
+
+Il éleva enfin la voix, coupa la lecture :
+
+--- Par la Divinité d'Antoninus, comment se fait-il, Poètes, que vous n'ayez rien écrit en l'honneur de l'Empire ?
+
+Cela était vrai ! Autant qu'on en pouvait juger, les Œuvres des Poètes n'exaltaient nullement l'Empereur. Elles chantaient tout : les dieux et les déesses, les prostituées et les matrones, le Crime et la Vertu, les Oignons des jardins romains, les Lentilles d'Egypte, les Chevreaux, les Bergers, Csesar Julius, les Navires, la Peinture, la Sculpture, le Vent, les Sources, la Mer, les Pois Chiches, les Jeux du Cirque et les Jeux des Osselets, à l'exception d'Elagabalus et de sa Divinité ! Et c'est ce qui avait indigné le cavalier qui, de fureur, tira un glaive de son fourreau battant sa cuisse aux ocres d'airain. Les Poètes levèrent les yeux ; les Critiques remuèrent. Quelqu'un poussa un cri. Et, précipitamment, les Poètes dévalèrent de leur escabeau ; les Critiques filèrent austèrement. Ce fut comme un évanouissement de toges et de tuniques, de faces rasées et d'yeux inquiets ; une espèce d'envol miraculeux de blancs oiseaux qui se disperseraient sur un étang aux eaux troubles, sur lequel auraient flotté mélancoliquement des rouleaux de peau en feuilles amincies !
+
+--- Et toi, que fais-tu là? cria l'officier, qui rentra son glaive, à Zopiscus toujours lisant.
+
+Et, comme il lisait encore, il empoigna rudement sa barbe pointue sans moustaches. Zopiscus hurla :
+
+--- Grâce, grâce ! Je lisais, j'allais vaincre les autres Poètes, qui ne savent pas comme moi écrire le Vers.
+
+Mais, reconnaissant un des officiers entrevus jadis à la porte Salaria, il descendit de son escabeau, toujours tiré par sa barbe, le mufle du cheval d'Antiochanus --- c'était Antiochanus --- sur le crâne.
+
+--- Ce Poème, Illustre, t'était dédié ! Je me souviens parfaitement de toi. Je chantais tes vertus, ton courage et tes services rendus à la cause publique. Veux-tu que je le lise? Mais Antiochanus le secoua plus vigoureusement, tordant sa barbe pointue comme un linge mouillé.
+
+--- Tu me dédiais cela? Mensonge! Et d'ailleurs, c'est pour sa Divinité Antoninus que tu devais l'écrire.
+
+Zopiscus eut un mouvement désespéré.
+
+--- Oui ! oui ! c'est à sa Divinité que je le dédiais ; je me trompais. Cependant, tu méritais bien cette dédicace. Laissemoi, Illustre, je vais, te satisfaisant immédiatement, élever Antoninus au-dessus de tous les dieux !
+
+--- Il l'est déjà, au-dessus de tous les dieux, cria Antiochanus, qui s'accalmait peu à peu. Et puisque tu veux chanter l'Empereur, viens avec moi !
+
+Et il l'emmena, le tenant toujours par sa barbe pointue, du haut de son cheval dont le pas s'activa, ce qui obligea le Poète à courir, la face renversée, les mains toujours serrant le rouleau précieux. Des passants se détournaient ; beaucoup riaient, et des écoliers lui décochaient des railleries.
+
+--- Où me mènes-tu, Illustre? gémissait-il.
+
+--- Auprès de l'Empereur, qui te jettera aux Bêtes, si ton poème est mauvais.
+
+Ils se rapprochaient du Ccelius aux maisons s'érigeant dans une apothéose de granit blanc et rouge, de marbre et de stuc, suivis par des curieux qui, le connaissant, se disaient qu'Elagabalus faisait enlever le poète pour quelque innommable boucherie. Devant eux, les Jardins de la Vieille-Espérance, à travers des voies qui s'ouvraient de toutes parts, faisaient des horizons de forêts, et les frises d'un palais s'apercevaient de loin, dans une trouée blanche, piquée d'ors.
+
+Une porte monumentale, précédée d'un portique, s'ouvrit. Antiochanus lâcha Zopiscus, incertain, pendant que des Prétoriens accouraient d'un sedicule tapi en des végétations hautes comme des maisons.
+
+# 8\.
+
+Antiochanus ayant mis pied à terre abandonnait sa monture à un Prétorien et disait à Zopiscus, en le gratinant d'un coup de poing dans le dos :
+
+--- Va, va ! L'Empereur sera aise de te voir.
+
+Une allée d'arbres énormes bordait un circuit, qui paraissait sans fin, de murailles coiffées d'herbes folles, et, dans la criblure des feuillages à la rousse tonalité, par où coulaient des rayons d'un or très chaud, s'espaçaient de lointains viviers miroitant sous des regards de flamands, une patte en l'air, l'autre retombant verticalement. Les Jardins avaient des plates-bandes d'un vert calme, des bosquets de pins d'un vert sombre, des cactus syriens d'un vert clair, et des roseaux oscillaient, en une atmosphère jaune dévorant leurs têtes plucheuses. C'étaient des vasques isolées, portées prodigieusement sur une colonne dégorgeant de l'eau blanche en des creux de maçonnerie à la surface de nénufars élargis, et aussi d'autres vasques peuplées de monstrueuses grenouilles de pierre, au goitre gonflé rejetant cette même eau en irisements. C'étaient des grottes forant tout à coup des perspectives de cristallisations bitumineuses, aux corniches nervées de plantes à feuilles, aiguës comme des pointes de sagittaires ; des apparitions d'aedicules de briques bleues ou roses vernissées, aux toits pointus, dont les entablements se coulaient en colonnes, comme des vêtements blancs, et des statues de marbre et de bronze, aux attitudes de gens nus se poursuivant et se violant.
+
+Ils croisaient des prêtres du Soleil, dont le glissement fit se retourner plusieurs fois Zopiscus, qui en reçut assez d'immondes injures pour le faire marcher sans plus s'occuper d'eux. A un moment leur parvint une musique claire de flûtes et de tympanons. Dans une échappée de végétation, en un lointain flottant dans la rousseur du soleil, un étrange attelage passa : douze femmes nues traînaient un char monté par Elagabalus nu, et d'autres femmes nues dansaient autour; d'autres, nues également, jouaient des instruments dont le son leur arrivait, et des gardes qui suivaient, les gardes de l'Empereur, --- des chrysaspides somptueux --- frappaient un bouclier d'or d'un pilum d'or.
+
+--- Tu vas voir passer sa Divinité, fit Antiochanus.
+
+Il le poussa vers l'attelage, qui fila en un visionnement de chair et d'or, pendant qu'Elagabalus, riant fort, leur lançait de son char un rapide regard.
+
+--- Et surtout, lis clairement ton poème, reprit Antiochanus une fois seuls; car sa Divinité est bon juge, et tu seras jeté aux Bêtes, s'il est mauvais.
+
+Le jardin se resserrait en un dédale de sentiers étroits peuplés de statues, de pavillons et d'autels surmontés d'une pierre noire en cône, couverte d'inscriptions. Puis une place sablée se noya de soleil roux, et, dans le déroulement des végétations, s'érigea un palais : deux étages de portiques évidés, un prostyle atteint par des marches rouges, des terrasses blanches coupées de balustres blancs, et des fenêtres cintrées sur les côtés pilastres, aux linteaux feuillages de phallus. Et ce palais était en dépit de l'architecture connue, car il surajoutait des dômes à des toits plats, des belvédères à des portiques. Par des ouvertures inattendues passaient des branches d'arbres, qui tombaient sur le sol, de haut ; des colonnes se suivaient jusqu'à des arcs bouchant des ailes de portes percées. Des cris de Bêtes roulaient dans ses profondeurs, stridents et vivants ; des cris de lions, de léopards et de tigres, même d'un' rhinocéros et d'un hippopotame pataugeant en un vaste bassin, au fond d'une cour.
+
+Sur la place, huit individus se promenaient : chauves, ils se regardaient et ne se parlaient pas, très dignes dans leur | J toge, d'où passait un bras.
+
+--- Attends là, commanda Antiochanus à Zopiscus. J'ai accompli ma mission. Sa Divinité m'a envoyé quérir un Poète ; je t'ai pris. Antiochanus te récompensera si ton poème est bon, et te jettera aux Bêtes, le cas contraire. Surtout ne t'en va pas, sinon je te fais tuer par les Prétoriens !
+
+Zopiscus resta coi, serrant nerveusement son manuscrit. Un individu qui louchait terriblement fila à ses côtés ; un second, qui louchait aussi, parut dans le soleil roux de la place sablée, et ce furent bientôt huit louches qui fixèrent le prostyle, avec des ports de tête contorsionnée. Ils battaient le sol, ne se connaissant pas.
+
+Huit goutteux s'appuyant sur des bâtons émergèrent ensuite, suivis de huit noirs, magifiquement vêtus de rouge, de huit individus très maigres et de huit individus très gras.
+
+Enfin, un individu absolument grave demanda à Zopiscus s'il arrivait à l'heure, et, comme le poète lui fit une réponse quelconque, il lui parla de telle sorte qu'il se crut en présence d'un sourd.
+
+Effectivement, c'était là un sourd, puis sept autres sourds survenant de divers points, qui, sans se comprendre, se tinrent des discours que les hommes chauves essayèrent de saisir de loin avec intérêt.
+
+Quelquefois les Bêtes criaient ; le palais était troublé de cliquetis d'armes et de heurts de meubles transportés ; dans les fonds des Jardins, des éclats d'ors frétillaient, une musique de flûtes et de tympanons grandissait pour mourir en rythmes bercés, et des formes nues s'entrevoyaient vivement, exquises, en bras agités, en croupes et en seins soulevés, en dos où flottaient des chevelures ; ces formes traînaient un char d'or sur lequel dominait un homme nu : Elagabalus, la tête crevant des feuillages qui pendaient.
+
+Quelquefois aussi, en une rapidité de bête surprise, voltaient des cerfs gigantesques, dont la rumeur fondait dans l'eloignement ; et des hommes couraient à leur poursuite, en une furie galopante, des hommes vêtus d'écarlate, qui leur lançaient des pierres et des bâtons, et les rejoignaient ensuite aux bords de lacs bleutés où ces cerfs allaient boire, frissonnants.
+
+On sentait, dans ces Jardins, un énorme apaisement, malgré ces musiques, ces rumeurs et ces cris, qui n'étaient lien à comparer à ceux du Palais des Csesars. Elagabalus donnait là à ses vices un libre développement, les soignait en raffiné, en délicat, comme des Fleurs bizarrement contournées, et ne songeait plus à l'Empire pour n'avoir affaire qu'à eux.
+
+Une bande d'hommes s'éparpilla vivement du prostyle, sous les yeux de Zopiscus, qui reconnut en eux les baigneurs que, quelques mois auparavant, Elagabalus avait fait rechercher dans les Thermes, et qui, depuis, avaient dû habiter la Vieille-Espérance, puisqu'on ne les avait plus revus. Il croyait que l'Empereur les avait égorgés après en avoir joui ; ils vivaient au contraire, gras et forts, charnus, bien portants et gais, en Hommes de Joie !
+
+Aimant à bavarder, il demanda à l'un des huit goutteux, oui, semblable à un énorme limaçon, se traînait sur le sol :
+
+--- Citoyen, que faisons-nous ici, devant le palais de sa Divinité? Il m'est avis que nous pouvons entrer, puisqu'Elle nous a appelés.
+
+Le goutteux acquiesça. Et les sept autres goutteux, les noirs, les sourds, les chauves, les maigres, les gras et les louches gravirent désordonnément les marches du prostyîe.
+
+Mais une porte s'ouvrit, des Prétoriens les repoussèrent à coups de hautes piques d'or, qui étincelèrent. Les maigres surtout crièrent : le bois des piques frappant sur leurs os avec un son mat.
+
+--- Puisque nous ne pouvons pénétrer, fit Zopiscus qui s'enhardissait, promenons-nous !
+
+Ils se promenèrent de long en large, le crâne des chauves luisant au soleil, et les louches se regardant affreusement, avec des plis au coin des yeux. A ce moment, la musique grossit, et l'Empereur, nu, fila vélocement devant eux avec des femmes nues. Comme ils ne se prosternaient pas assez vite, les chrysaspides leur donnèrent du pilum d'or sur la nuque : ils se jetèrent alors à plat ventre, en une adoration éperdue.
+
+Disparition subite ! Mais bramements de trompettes dans le palais. Dans le palais aussi, cris des Bêtes que fouaillent des victimaires. Des nomenclateurs à mitra jaune et à chlamys écarlate appellent Zopiscus, les sourds, les goutteux, les noirs, les chauves, les louches, les maigres et les gras, qui s'empressent d'accourir. Un vestibule s'évase, très haut et profond, avec des murailles peintes de roseaux en colonnades soutenant des plantes cannelées, en un entortillement fou de feuillages ; sur des nefs dansantes, des lampadaires supportent des villas, et des branches s'en échappent, avec des aboutissements de faces d'hommes et de femmes terminées en palmettes ou en queues de poissons. Un déroulement inouï de création hors nature, avec des enlèvements de nudités sur des dos d'animaux ailés, les pattes griffées. Une mosaïque sans fin simulant des vagues rebondissantes de sirènes et de dauphins entre des algues lamées s'achevant en phallus rouges, et des bâillements de vulves sur des ciels extravagants hantés de mythologies nues. Droits, des Prétoriens au bouclier d'or s'espacent, entre des candélabres gigantesques reposés sur des croupes de marbre d'hommes, élargis en pattes de faucheux jusqu'à la voûte, coupée de cubes rentrants, gardant de grandes roses si fouillées qu'on les dirait prêtes à se détacher.
+
+Un nomenclateur les fait pénétrer dans un atrium lumineux et vaste, dont le bassin renferme un crocodile qui dresse sa gueule pour voir passer les Invités, inquiets. Ils traversent la tablinum, aux appartements qui béent, par l'ouverture de portières traînantes, de somptueux sigmas pourpres, de trônes d'airain et d'or, de lits safranés, de cathèdres d'ivoire, de tables rondes et carrées, au-dessus en bois de tuyas recouvert de tapis pelucheux, et fixées à des pieds en griffes d'animaux, que relient des attelles décorés de feuilles ou de figures sculptées, avec un couronnement de têtes de taureaux et de rois à la chevelure tressée.
+
+Les bruits d'instruments leur stridulent encore, venus de très près. En un fond d'appartement, dont l'or des tentures et des murailles fait un jour jaune, ils voient Elagabalus nu danser, en soufflant dans une flûte, un tympanon sur sa tête et ses cuisses agité avec des voltes tourbillonnantes, pendant que les Hommes de Joie, nus aussi, font cercle autour, une main à leur sexe épilé et raidi ! Une voix s'élève parmi les Invités :
+
+--- Elagabalus va nous violer !
+
+Ils geignent alors, surtout les goutteux, et les sourds crient fort. Mais le nomenclateur leur désigne une pièce obscure, qu'hésitants ils traversent. Enfin, un autre appartement, mais éclairé, s'ouvre, avec, au milieu, un sigma immense entourant à demi une grande table chargée de mets.
+
+--- Sa Divinité vous offre à boire et à manger, dit le nomenclateur, mais elle jettera aux Bêtes quiconque ne pourra se placer sur le sigma.
+
+Ils se précipitent, même Zopiscus, que le nomenclateur arrête du bras.
+
+--- Toi, tu n'es point invité ; tu n'es ni chauve, ni sourd, ni maigre, ni gras, ni louche, ni noir, ni goutteux. Tu n'es qu'un poète. Attends là. Sa Divinité te fera dire ce qu'Elle exige de toi.
+
+De grands rires autour d'eux! Au son de trompettes d'or, ouvrant des portes de toutes parts, apparaissent, habillés de robes longues, Elagabalus et les Hommes de Joie, avec Hiéroldès, Zoticus, Gordius, Murissimus, Protogénès, Gordius, Aristomaches, Antiochanus, tous les familiers qui font la fête avec l'Empereur, moins cependant Atillius. Pas de femmes avec eux, mais des hommes, des hommes pour l'amour mâle qui est le délire vivant d'Elagabalus.
+
+Le sigma ne peut contenir tous les Invités, que les familiers culbutent les uns sur les autres. Elagabalus rit fort, et sa face de beau jeune homme encore imberbe, sa face somptueuse prend une animation bouffonne de Bacchus grisé. Il n'a pas encore vu Zopiscus, terrifié en un coin.
+
+Les Invités ne pouvant tous occuper le sigma trop étroit, l'Empereur fait enlever la table, et des esclaves les chassent à coups de gaule, font s'envoler les sourds en des cris de détresse, se bousculer les chauves, les mains à leur crâne dénudé, frotter les gras aux épaules des maigres, et pousser les goutteux sur les louches qui regardent terriblement l'Empereur de plus en plus riant fort.
+
+Par un entrebâillement de porte, des bras apparaissent, chargés de draperies d'or ; des mains ouvertes retombent à plat sur la nuque des Invités, effarés et aveuglés.
+
+--- Sa Divinité les fait jeter aux Bêtes, assure Antiochanus qui s'est rapproché de Zopiscus, et maintenant, c'est à toi. L'Empereur va écouter ton poème. Il est bon juge, je le répète, et si ton poème est mauvais, tu iras rejoindre les Invités.
+
+Et il l'entraîne vers Elagabalus, qui se met à rire :
+
+--- Soit. Je vais t'écouter. Lis commodément! Zopiscus déroule son manuscrit, mais Elagabalus est à une extrémité de la salle, causant avec Gordius. Il court vers lui :
+
+--- Je vais lire, Divinité !
+
+Subitement, Elagabalus allonge un pas énorme jusqu'à l'autre extrémité :
+
+--- Lis toujours, je t'écoute. Je suis bon juge, moi, Empereur !
+
+Et il fait plusieurs tours, suivi par Zopiscus ânonnant les vers, les beaux vers du poème de Vénus. Elagabalus ne comprend pas, car il crie encore :
+
+--- Recommence, je n'y suis plus. Tu étais à Vénus sortant de la conque des eaux. Continue ! Ne t'arrête pas ! Je ne comprends rien à tes vers !
+
+Et une poursuite, par Zopiscus, de l'Empereur courant, à travers d'autres salles, à travers des péristyles et des atriums, des cubiculas et des vestibules, grandement amusé par cette lecture à la course qui dure assez pour que le poète l'implore en s'entrecoupant :
+
+--- Grâce, Divinité ! je n'en puis plus ; je m'affaisse, je m'avoue vaincu. Tu es le vainqueur des vainqueurs, et nul, à la course, à la lutte, au saut, au pugilat, au jet du disque, ne te vaut. Tu peux renverser tout athlète sans te faire frictionner de ceroma, et moi, pauvre poète, je ne puis que baiser tes pieds et te chanter.
+
+Alors, Elagabaîus s'arrête, terrible :
+
+--- Ah ! tu t'avoues vaincu ; je m'y attendais. Eh bien ! je vais voir si tu es bon à autre chose !
+
+Il lui serre la nuque, d'une main vigoureuse, le courbe, abruti :
+
+--- Je vais te violer !
+
+--- Violer ton poète, non, non, Divinité, gémit Zopiscus, n'osant remuer sous la poigne de l'Empereur. Je vais composer exprès pour toi un poème : tu y habiteras l'Olympe, au-dessus de Jupiter. Les mers lécheront tes pieds ; des paons et des autruches traîneront ton char ; tu auras une couronne de montagnes et un sceptre d'astres. Laisse-moi !
+
+--- Alors, à quoi es-tu bon? fait Elagabaîus, le regardant dans les yeux, le dominant de la tête, toujours la main serrant sa nuque. Viole-moi ! Je suis le dieu qui se donne à tous.
+
+Et il soulève sa robe, mais Zopiscus s'échappe :
+
+--- Non ! non ! Divinité. Je n'oserais toucher à ta personne, qui m'est sacrée.
+
+L'Empereur :
+
+--- Tu es délicat, toi ; tu es le premier qui m'ait refusé. Que t'a donc fait Elagabaîus ? Ah ! je sais, tu es amoureux de mes Ethiopiennes. Attends, attends! Je vais t'en procurer une, Poète, dont tu me diras des nouvelles demain.
+Il appelle un nomenclateur :
+
+--- Nomenclateur, voici mon Poète, qui veut passer une nuit avec une Ethiopienne. Je te le donne ; tu me le renverras demain.
+
+Et il laisse là Zopiscus, que le nomenclateur pousse du bras :
+
+--- Obéis à sa Divinité, sinon, les Bêtes !
+
+--- Comme pour les Invités, demanda Zopiscus, blafard ?
+
+--- Oui ! si les Invités n'avaient pas voulu des Ethiopiennes.
+
+--- Et qui sont jeunes, est-ce pas, nomenclateur ?
+
+--- Eheu ! Des nonagénaires ! Je vais te livrer à Habarr'ah, plus jeune : seize lustres à peine, et qui t'attend, car tu es Poète et elle aime tes semblables !
+
+# 9\.
+
+En un appartement reculé de la Vieille-Espérance, fermé de portiques intérieurs enserrant une cour dans laquelle un bassin gardait un crocodile qui ne remuait pas, Atillius rêvait. Enfoncé dans un trône de bois incrusté d'or, la tête appuyée à sa main gauche, un genou sur l'autre, un pied suspendu, immobile, il fixait il ne savait quoi coulant paisiblement, comme une eau de fleuve qui reflète des décors de rives sans fin.
+
+C'était d'abord un paysage syrien, percé de villes aux tours montantes, traversé de rubans d'eaux bleues dans lesquelles se miraient des temples blancs, et ces rubans d'eau bleue traînaient des ombres de ces temples blancs Rallongeant interminablement.
+
+C'étaient des palais, sur des marches de brique rouge, gardées par des sphinx de granit ou par des nimrouds cornus, mordues à leur haut de colonnades en torsion aux chapiteaux épaissis en lotus. Des morceaux de soleil y resplendissaient, et la lune, la nuit, dansait, folâtre et bleuâtre, sur ces marches rouges qui ressemblaient à du sang en cascade.
+
+C'était un Jardin qui avait des salsolas, des ilex et des cactus, des cèdres et des platanes, et des bassins clairs comme des dessus de boucliers d'argent, et des allées vertes s'ouvrant en des perspectives de ciels bleus troués de lumières d'or.
+
+C'était une mer accalmée, égratignée d'un navigium filant sur Brundusium, en une retombée paisible de rames, dont le sillage développait une vision véloce de villes sur des côtes, de plages affalées sous le baiser des flots, couvertes de populations qui accouraient, en des danses, au son des sistres et des syrinx.
+
+C'était la Voie Appia, que hantaient des voyageurs venus de tous les points du monde, pour s'engouffrer dans l'insatiable Rome, engloutissant tout.
+
+C'était Rome elle-même, vautrée sur ses sept collines, pâmée sous les étreintes du Principe de la Vie, sur elle l'ombre immense de la Pierre-Noire qui, des Jardins de la Vieille-Espérance, se dressait, formidable, menaçant le ciel comme une tour infinie.
+
+Et sous cette ombre disparaissaient maintenant les Temples et les Basiliques, les Portiques et les Arcs, et le soleil, intercepté par elle, devenait sanglant comme un soleil d'éclipsé, et la lune pleurait sinistrement une lumière jaunâtre pareille à du pus, et les étoiles n'étaient plus, et il n'y avait ni jour clair ni atmosphère limpide, mais quelque chose des troubles profondeurs d'un crépuscule violet.
+
+Ah ! pareille à une approche de nuit brouillassante, la Passion mâle grandissait, dévorant peu à peu la Passion femelle, et l'humanité en perdait ses aurores d'illusions, ses belles aubes bleues d'amours, et ainsi, sous le Cône-Noir, l'Empire se tordait dans les voluptés de PAndrogyne, vers lesquelles l'avait poussé Atillius !
+
+Cependant, comme suspendu dans un vide noir, un vide d'ombre sans étoiles qui était celui du Néant même, Atillius existait. Et rien des bonheurs rêvés, des raffinements cherchés, des satisfactions attendues, ne venait caresser son cœur qui ne remuait pas, et ses chairs qui n'avaient pas de vibrations. Son cerveau flottait en des étendues vertigineuses, comme une lampe éteinte dans la nuit.
+
+Et la fleur noire de sa Passion lui irradiait sans cesse, ténébreuse et froide, sans parfums et sans dessins, et ses pétales l'enlaçaient victorieusement, et elle montait, sinistre, aussi haute que la Pierre-Noire, dans une ombre de mort.
+
+Et dans cette ombre aussi Madeh disparaissait, et ses deux yeux n'étaient plus que deux soleil effacés, et sa voix, par une analogie singulière, pleurait du pus jaune, et il n'y avait dans la maison des Carènes, où il l'emprisonnait comme un Objet divin en un Tabernacle, ni arbres, ni bassin, ni murailles peintes, ni meubles d'or, ni rien de ce qui la constituait, mais quelque chose des ruines informes écroulées dans du noir.
+
+C'est que l'Aberration d'Atillius pour Madeh, par Elagabalus élargie dans l'Empire, constamment lui irritait l'âme, parce qu'elle n'aboutissait qu'à des non-sens énormes, à une perte sans retour d'énergies humaines impuissantes.
+
+C'est qu'elle était incapable de s'implanter malgré tout dans la Nature, criant sous l'ombre de la Pierre-Noire qu'elle se préparait à combattre suprêmement, et que, là où cependant elle vainquait, c'était par une traduction de choses sans majesté et sans génie, de choses grimaçantes et bouffonnes, qui n'étaient pas l'Eternelle Unité et l'Universelle Perfection rêvée par Atillius.
+
+Quoi ! lui-même, Elagabalus, magnifié par l'Impérialat, déjà demi-dieu par la beauté extérieure ; lui dont les sandales d'or marchaient sur des millions de nuques d'hommes, de l'Orient à l'Occident, n'entrevoyait le Principe de la Vie qu'à travers des amusements d'éphèbe gâté, qui le rabaissaient en le rabaissant et, pis encore, perdaient à tout jamais cette hardie tentative d'un culte revenant à l'origine de la création par la réédification de l'Androgyne que chacun sentait en soi, que chacun désirait être en ses heures troubles, et qui apparaîtrait sûrement un jour !
+
+Déception ! Déception ! Mieux n'eût-il valu rester à Emesse, vivre sans Empire, seulement sacrifiant au Cône-Noir, en des processions d'hommes mitres se déroulant dans des escaliers rouges, au bord de fleuves et sous des portiques de temples? Pourquoi rendre toujours impossible le culte aimé qui, au lieu de paraître grand, n'était maintenant que sinistre et bouffon ?
+
+Car, Elagabalus roulait sans mesure, aveuglé da sa puissance, hélas ! prête à crouler au premier souffle du peuple romain, à la moindre secousse que lui imprimeraient ses ennemis, aussi les ennemis du Principe de la Vie.
+
+Et ces ennemis, Atillius les voyait cruellement rêvant de jeter Elagabalus aux égouts ; ils hurlaient déjà des mots de mort, des menaces de carnages qui ensanglanteraient une fois de plus Rome, et mettraient des cadavres dans ses voies, des cadavres dans ses palais, des cadavres dans la Vieille-Espérance, témoin de ses folies !
+
+Ils avaient à leur tête Mammaea et Alexander, des généraux, des sénateurs et des chefs de chrétiens prêts à soulever le peuple et les soldats.
+
+Il n'avait pour se défendre, Elagabalus, que sa mère, Sœmias ; lui, Atillius ; les prêtres du Soleil, les compagnons de ses plaisirs, ses Hommes de Joie, ses familiers trop perdus pour aller ailleurs : une poignée de dévouements contre un écrasement de vengeances et d'ardeurs.
+
+Si, au moins, Mammaea acceptait le culte nouveau, si elle voulait faire d'Alexander un second Elagabalus, plus digne et majestueux, oh ! alors, Atillius n'hésiterait pas à abandonner l'Empereur, cause de l'avortement prochain du nouveau culte ! Mais cette femme se refusait à la Pierre-Noire, rêvant d'Alexander un Empereur gelé dans la Vertu insexuelle, surtout soumis aux anciennes divinités, et n'acceptant des nouvelles que Kreistos, non le Kreistos des assemblées passionnantes, où des confesseurs se baisaient mystérieusement, mais le Kreistos politique dominant les peuples à l'égal des autres Immortels !
+
+Ainsi songeait Atillius, enfoncé dans un trône de bois incrusté d'or, suivant au hasard de ses yeux il ne savait quoi coulant paisiblement comme une eau de fleuve qui refléterait des décors de rives sans fin, sans que le réveillât le son, à toutes volées, de trompettes annonçant Sœmias, et dont la musique courut en rythmes stridents à travers les Jardins de la Vieille-Espérance noyés dans un soleil roux.
+
+# 10\.
+
+--- Frère ! Aîné ! Pourquoi garder ainsi Madeh là-bas, aux Carènes ?
+
+Ainsi s'exclamait Atillia accourant, tourbillonnante d'étoffes et sonnante de joyaux, vers Atillius qui remua faiblement. Atillia s'assit sur ses genoux, baisa ses joues minces, se tordit à son corps.
+
+--- Vois-tu, l'Impératrice est inquiète, très inquiète. Il faudra tuer Alexander pour conserver Elagabalus !
+Elle sauta sur le sol, pirouetta d'un pied, l'autre dans sa main :
+
+--- Oui! j'aurais voulu voir Madeh, qui s'ennuie fort là-bas. Que t'a-t-il fait, Madeh, Aîné ?
+
+Elle le réembrassa et, en un éclat de rire :
+
+--- Il le faut voir comme je l'ai vu, se traîner dans sa chambre, et sans distraction autre que de passer à l'atrium, à faire des yeux ronds au crocodile et des grimaces au singe !
+
+Atillius se dressa :
+
+--- Eh quoi! tu l'as vu, Sœur, Madeh? Tu l'as vu chez moi? Qui t'y a emmenée? Et comment as-tu connu ma demeure ?
+
+Atillia esquissa un pas, renversa sa gorge, tendit sa jambe juste assez pour découvrir son pied, dont la sandale, sur la mosaïque, fit un clac.
+
+--- Far ITabarr'ah! Très rusée, l'Ethiopienne. Un poète a passé dernièrement une nuit avec elle, sur l'ordre d'Antoninus qui aime à consoler les vieilles.
+
+Atillius s'exaspéra :
+
+--- Habarr'ah ! Mais pourquoi faire? J'ai défendu qu'on allât voir Madeh en mon absence, et toi-même je t'ai confiée à l'Impératrice pour rester au Gynécée.
+
+Atillia rit très fort. --- Au Gynécée ! Mais tu ne sais donc pas que j'appartiens à l'Impératrice, que j'as siste aux réunions du Sénaculum, que je suis libre, libre, libre! Frère, et qu'il ne tient qu'à moi de donner ma virginité aux Romains. Si. cela m'a plu, à moi, d'aller voir Madeh, qui est jeune et qui sent bien bon !
+
+Atillius se promena de long en large, pendant qu'Attilia s'asseyait sur le trône, cependant un peu confuse de l'accueil extraordinaire du Frère, qu'elle n'avait jamais vu ainsi. Alors, quelques larmes lui montèrent aux yeux :
+
+--- Il fallait me défendre sa présence, je n'y serais point allée. Mais pourquoi ne plus l'emmener avec toi? Il est donc coupable, Madeh ? Dis, laisse-le en liberté !
+
+Et elle ajouta :
+
+--- Pourquoi donc ne t'a-t-il pas dit que je le voyais? Est-ce que tu ne le vois plus, toi ?
+
+Un silence se fit. Et :
+
+--- Ce n'est pas une seule fois que je l'ai vu. La dernière, un homme du peuple, qui l'affectionne beaucoup, était avec lui, un nommé Ghéel, et nous nous sommes amusés tous trois, non, tous quatre, avec Habarr'ah, que j'ai mise de la partie.
+
+Puis :
+
+--- Heu ! heu ! je vois que cela te peine, car tu ne me réponds pas.
+
+Effectivement, Atillius, ne répondant pas davantage, restait bouleversé des confidences d'Atillia. Et ce qui l'accablait, c'est que Madeh ne lui avait rien dit des fugues de sa sœur à la maison des Carènes.
+
+--- Est-ce toi qui lui as interdit de m'en parler, Sœur? demanda-t-il à Atillia, qui, aussitôt, bouda.
+
+--- Moi! je ne lui ai rien interdit. Habarr'ah seule a suggéré au janitor de ne pas t'en causer.
+
+--- Et le janitor a conseillé à Madeh de ne m'en rien dire, compléta Atil^'is, sourdement heureux d'excuser l'affranchi.
+
+Et pour obtenir des confidences plus complètes, malgré un déchirement d'âme, il ajouta :
+
+--- Tu l'aimes donc, Madeh, que tu vas le consoler? Si je le laisse là-bas, c'est que je ne puis le garder ici, c'est que le service de l'Empereur ne me laisse aucun répit, et qu'il s'ennuierait davantage à la Vieille-Espérance.
+
+--- L'aimer ! éclata Atillia en se levant. Ah ! l'aimer. Il est jeune, et il sent bon, et il est frais, et certes, j'aime à toucher la peau de ses mains et de sa face, très fine. L'aimer ! Oui ! j'aime bien Madeh.
+
+Elle resta devant lui, la bouche ouverte, les yeux brillants, voulant ajouter quelque parole extraordinaire et ne la trouvant pas. Enfin, vivement :
+
+--- Oh ! non pas pour te supplanter, car depuis que la Pierre-Noire a voulu se passer de nous, vous, les hommes, vous ne nous comprenez plus !
+
+Elle s'enfuit, sentant avoir, en son plus profond, soulevé un coin saignant de la passion d'Atillius.
+
+11\.
+
+Un éclat de trompettes. Un bruit de portes de bronze roulant épaissement, et des pas de chrysaspides frappant de piques d ; or les mosaïques polychromes. Une impérieuse voix de femme, et, dans un éblouissement de pourpre, Scemias poussant de son bras nu la draperie qui laisse passer un grand flot de vivante clarté.
+
+Scemias avec, flottant sur le corps et fixée à l'épaule, la palla rouge sur la stola jaune aux bordures de perles brochées, et des sandales aux cordons montant haut, dans un rayonnement de broderies et des gemmes éclairantes.
+
+Scemias qui s'avance vers Atillius debout devant elle, non en une attitude humble de sujet, mais les bras croisés, la tête fixe, pendant qu'au fond du palais se traîne, mourante, la musique des trompettes, au rythme barbare de mélopée répétée.
+
+--- N'est-ce pas, primicérius, que le salut de l'Empire l'exige, cette mort? Ce salut du Fils rayonnant dans l'Impérialat peut sombrer dans la montée de conspirations coulant des mains adroites de Mammaea. Eh quoi ! je l'aurais mis au monde pour le vouer à la Pierre-Noire ; j'aurais partagé avec lui et pour lui les dangers des batailles et les dangers des sièges ; j'aurais souffert et pleuré bien des fois ; pour le culte de la Vie, j'aurais donné mon Corps Sacré à tous, comme lui-même, et tout cela en vain! Cette fleur prodigieuse de l'Empire serait facilement cueillie par Alexander et Mammaea, ma Sœur et le Fils de ma Sœur, alors que nous-mêmes en avons, pour la faire s'épanouir vertigineusemen le plant sanglant à nos aurores et à nos couchers de soleil !
+
+Haletante, Sœmias explique à Atillius tout un projet de résistance effrénée : un envahissement, de nuit, des appartements de Mammxa et d'Alexander, que des Prétoriens gorgés d'or jetteraient aux Bêtes ; ou bien leur empoisonnement foudroyant et un massacre général des conspirateurs traînés au Tibre par une populace saoulée de vin et de sang. Et elle le développe savamment, ce projet, en raffinée qui a dans les veines une ancestralité de crimes familiaux, et est, en sus, aiguillonnée par sa maternité. Mais Atillius branle la tête.
+
+--- A quoi bon, à quoi bon ?
+
+--- A quoi bon ? A sauver le Fils, à nous sauver nouseonserver l'Empire à la Pierre-Noire qui va s'engloutir dans un désastre prochain. Tu n'as donc pas flairé les conspirations sourdant par le sol, et bientôt éclatant comme un ouragan qui nous enlèvera tous ?
+
+--- A quoi bon, si le monde se refuse à la Pierre-Noire, si ton fils, Impératrice, en salit déjà le symbole par des amusements d'enfant vicieux !
+
+--- Tu as sous la main tes Prétoriens, et un de tes signes balayera cette nuit la conspiration. Tu ne veux donc pas sauver le Fils, me sauver, sauver toi-même ?
+
+Atillius se promène encore, attendri par cette Mère qui peut cependant le casser comme un roseau, car elle contresigne les délibérations de l'Empereur, et rien ne se fait de lui sans elle, et rien ne se fait sans elle par le Sénat, et nul .Unis l'Empire ne lui échappe. Mais il ne veut pas de ces •>-res qui ne sauveront davantage la Pierre-Noire et l'Empereur que, par une aperception rapide, il voit déjà s'enfoncer dans le Néant des choses disparues.
+
+--- Non ! Domina ! Non ! Clarissima ! Ces morts soulèveraient plus tard le peuple contre Elagabalus et toi. Si nous devons périr, eh bien ! le destin l'aura voulu !
+
+Tu n'aimes donc pas, tu n'as pas de Fils, tu n'as pas d'entrailles, tu es sourd et aveugle, toi ! Quel homme es-tu ? crie Scemias. --- Et elle lui secoue le bras, à effrayer !
+
+--- Et ta sœur périra avec, et toi avec, et ton Madeh avec !
+
+Elle a dit : ET TON MADEH ! croyant le toucher plus aigument, avec, cependant, un sourd sentiment qui point son cœur comme un poignard. Mais Atillius détourne la tête :
+
+--- Non ! Non ! A quoi bon, et pourquoi ?
+
+Elle peut, lui arrachant le primicériat, remettre en d'autres mains les forces prétoriennes, et le faire jeter aux Bêtes, avec Atillia, avec Madeh, puisqu'elle lui a parlé de Madeh, mais il n'accomplira pas ces massacres. Il n'a la force de rien et ne désire que mourir !
+
+--- Mourir ! s'exclame Scemias. Tu n'es pas homme, toi } tu es tout cerveau, ou tu es sans sexe.
+
+Et, se souvenant de cet amour qu'elle a eu pour lui en des moments qu'il ignore, elle a un sourire de mépris exaspéré. Atillius répond :
+
+--- Je suis homme, je le suis trop, mais d'une humanité dont tu ne comprends pas la vie, et qui n'existe pas, mais qui existera !
+
+Leurs yeux se fouillent, à tirer leur âme au clair, comme l'eau d'un puits amenée au dehors, pendant que l'apaisement de la Vieille-Espérance est à peine brisé par les déchirements des trompettes qui expirent au dehors.
+
+Alors, elle se précipite sur Atillius, et, l'attirant de force à elle, sans qu'il se débatte, elle l'embrasse au front, au bord de ses cheveux châtains, en une folie qui secoue ses seins :
+
+--- Vois-tu, tu vaux plus que moi, tu vaux plus que nous tous. Tu sauverais l'Empire si tu étais l'Empereur et je serais ton Epouse si tu voulais. Je ne vois pas la profondeur de tes pensées, car tu es trouble comme la nuit ; et ta passion pour Madeh m'affole, et je ne sais que penser de toi. Mais tu es fort, tu es victorieux de toi, tu es vierge pour la Femme, tu me domines. Ah ! je voudrais retourner à Emesse, dans le paysage de tes Jardins et des miens, et t'avoir avec moi, et, loin de Rome et du monde, vivre les jours anciens avec toi, avec toi, Atillius, frère d'Atillia, amant de Madeh qui est un homme et appartient à une humanité qui n'existe mais qui existera ! Nous laisserons la Conspiration grandir et Mammsea rêver l'Empire, et Elagabalus le perdre. Agis comme tu le voudras. Si nous devons mourir, nous mourrons, et je serai satisfaite seulement de baiser encore tes cheveux et de te voir mourir avec la Mère de ton Empereur, avec Atillia, avec ton Madeh !
+
+# 12\.
+
+Rome s'illuminait de l'Avril, --- le mois d'Aphrodite, --- et, sous des ciels tendrement bleus comme des ciels laqués, elle s'élargissait, victorieuse et sereine, se réveillait bruyamment, non d'un hiver, qui n'avait jamais été si doux, mais du cauchemar de la Pierre-Noire, si sinistre les mois précédents. Car toutes les folies d'Elagabalus, les bouffonneries d'Elagabalus, s'y donnèrent librement carrière, et les Romains étaient maintenant aises des beaux jours qui enchantaient au moins le débordement du culte nouveau, en atténuaient l'ombre, la leur diminuaient.
+
+Atta parcourait les quartiers populaires, où, depuis longtemps, il soufflait parmi les chrétiens la sédition contre l'Empereur. Il était maintenant dans la Région Transtévérine d'où s'entrevoyaient le dôme pointu du Tombeau d'Hadrien, la gibbosité du Vatican couverte de villas, et le fleuve, le grand fleuve latin, qui coulait, jaune toujours, en un emportement d'ombres de monuments et de maisons. Cette Région se divisait, à l'infini, de ruelles étroites et sales traversées d'une population affairée. Sur des voies terminées par des culs-de-sac que des avancements d'étages en planches peintes noyaient d'ombre, avec des perspectives d'escaliers branlants se hissant à des fenêtres ornées de fleurs en des vases d'argile, avec des coupures de terrasses aux balustres de bois' avec des passages obscurs que trouaient les lumineux lointains, s'ouvraient des boutiques d'artisans : des fabricants de chaussures et des fabricants de statuettes, des sculpteurs d'ivoire et des incrusteurs de nacre, des menuisiers et des tourneurs de table, des fondeurs d'objets de bronze et de verre, des tisserands et des tailleurs de toges. Beaucoup appartenaient aux diverses imunions chrétiennes reconnaissant peu ou prou la suprématie de l'évêque de Rome, avec chacune une idée sur Kreistos, à la fois une réduction de Mithra, une symbolisation du Soleil, une humanisation d'Osiris ou de Zeus, quelque chose comme une descente vivante de tous les dieux fondus en un seul.
+
+Et Atta, très connu des chrétiens, avec des apartés, des sourires, des mépris, les aigrissait sensiblement contre l'Empire. Loin donc de savoir gré à celui-ci de l'extrême liberté qu'il leur accordait, ils commençaient à se croire très mal sous ce règne, désiraient déjà un autre qui leur donnât encore plus de liberté, ou bien les gratinât des persécutions desquelles ils sortaient à peine. Car, ils les regrettaient, ces martyres qui les avaient vus s'attabler au cruel festin de la mort ; ils appelaient les tortures et les agonies, sentant confusément que la cimentation des croyances dispersées les exigeait encore jusqu'à la suprême unité des doctrines poursuivies par leurs chefs.
+
+Depuis son entrevue avec Mammaea, Atta avait vécu sobrement de ses auréus, très désireux de se tailler un rôle dans la tragédie future de la lutte des deux Empires. Il n'était plus parasite ; il se sentait sauvé par la morale de Kreistos et un besoin de relèvement qui le travaillait tout à fait, épurant presque ses ambitions faites d'orgueil, de pédanterie et de basses ignominies.
+
+Dans une ruelle, habitée par des juifs, noirs et remuants, Atta crut reconnaître Amon, disparu depuis plus d'une année. Il n'avait pas sa bonne face ronde et son diploïs sui son chiridota ; se traînant mélancoliquement, sous la garde effrontée d'une jeune juive, il regardait des interstices de ciel bleu trouant les toits rapprochés. c< mme un prisonnier aspire au grand air. La chose était tellement singulière qu'Atta crut s'être trompé.
+
+Il aborda à la Région Aventine, une autre région de pauvres gens, parmi lesquels beaucoup de défenseurs des vieilles doctrines. Mais les chrétiens l'avaient entamée d'églises vivaces qui, y élargissant leur propagation, dissolvaient peu à peu ce bloc qu'on aurait cru insoluble du polythéisme ancien. Il vit quelques coreligionnaires dont les industries s'exerçaient en des boutiques basses, se convainquant que déjà sa longue machination portait ses fruits.
+
+Bien peu, somme toute, hormis des exaltés et des illuminés, partageaient les idées de Zal, car ils se disaient que la salissure de cet Empire serait à jamais indélébile, si elle s'imprimait sur Kreistos. Ils étaient surtout acharnés contre le Perse et ses partisans, qui ne cessaient de prêcher non la conciliation avec Elagabalus, mais une acceptation tacite de ses vices, dont le débordement préparait décidément la voie à l'Agneau.
+
+--- L'Agneau choisit son chemin, disaient ces derniers, et la persécution souvent perd l'homme plus par l'orgueil du sacrifice que la pacification, qui le laisse aux passions de la vie. Avec Elagabalus, Kreistos vaincra. Il est dit que, dans Babylone, naîtra la Vierge qui enfantera le Dieu !
+
+Obscurément, ils insinuaient cette doctrine hardie, et Severa surtout, dans son ardeur pour les idées de Zal, la première. Mais les autres chrétiens remuaient la tête, restaient sourds, avec de fréquents soupirs.
+
+--- Pourquoi violenter Kreistos, si Kreistos ne veut pas d'Elagabalus? La nuit et le jour ne se peuvent unir. Ainsi d'Elagabalus et de Kreistos !
+
+Quelquefois, ils se plaignaient de Zal :
+
+--- Ce Zal, l'Esprit Mauvais lui suggère de mauvaises pensées. Nous le connaissons pour ne s'être jamais rangé de l'avis de tous ; ses idées sont bien hasardeuses. N'est-ce pas, Frère Atta, qu'il t'a faussement accusé dans une Assemblée ?
+
+--- Oui, répondait Atta victorieusement ; et pour ne pas affliger les Frères par une discussion scandaleuse, moi qui veux que l'humilité soit en chacun, je m'en suis allé, préférant être accusé faussement. Mais Kreistos a vaincu ; car le mensonge de Zal ne m'a pas privé de l'amour de mes Frères.
+
+--- De quoi t'accusait-il, vaillant confesseur de l'Agneau? demanda un chrétien, un marchand d'herbes sèches pour les maladies.
+
+--- De porter le Péché en moi, fit Atta en souriant doucement, comme si le Péché n'est pas en lui ! Mais je ne veux rien dire contre lui. Il m'a souvent accusé par devant d'autres Frères et d'autres Sœurs de m'entremettre avec les Gentils, de renier Kreistos, de vivre de passions cachées. Que le feu de Sodome me brûle si cela est vrai !
+
+Et il se reprit :
+
+--- J'ai tort, j'ai tort, je vous le confesse, car je viens de jurer, et le témoignage inutile n'est pas permis par Kreistos !
+
+--- Tu es un saint, et nous devons te vénérer, dit Vipsanius, le marchand d'herbes, et Zal est un mauvais Frère !
+
+--- Et Severa une méchante Sœur, ajouta un autre, qui s'appa'ait Carinas et professait aux riches chrétiens le découpage des viandes.
+
+--- Ne médisons pas ! assura Atta avec autorité. Severa aime Zal, mais d'un amour qui ne lui est pas très clair encore.
+
+Tous rirent très fort, Carinas et Vipsanius avec des yeux attendris pour Atta, qui ajouta en les quittant :
+
+--- Oui ! Cet amour ne lui est pas très clair encore, mais elle le distinguera mieux plus tard, et ce sera trop tard. En attendant, son époux Glicia veille sur elle, et non Kreistos, qui ne lui est plus si cher.
+
+Il traversait la Région du Grand-Cirque, et, après avoir remonté la rue Neuve, descendait au Vélabre. Typochronos, devant la boutique duquel il passait, le héla :
+
+--- Hé ! toi, pourquoi ne pas parler à Typochronos, qui ne t'a pas vu depuis si longtemps ?
+
+Atta revint vers le barbier, seul en ce moment.
+
+--- J'étais presse, la vie est brève et le temps jamais sûr de se retrouver une fois perdu. Oui ! je suij aise de te revoir, je suis bien aise !
+
+Et, pour se donner une contenance, autant que pour se reposer, car le parcours de la journée l'avait fatigué, il s'assit dans la belle cathèdre grecque. Typochronos lui fit :
+
+--- C'est étonnant comme tu as disparu depuis. Que faisais-tu? Amon a disparu aussi, Zopiscus aussi. Que se passe-t-il donc à Rome, que mes clients s'en vont sans me prévenir ?
+
+Il était caressant, avec une espérance nullement déguisée de le regagner. Atta répondit en geignant :
+
+--- Je copiais un volumen qui m'a coûté des peines et des soins. Tu sais combien je sais tracer les lettres avec un roseau taillé. Le généreux possesseur du volumen m'a payé ce travail, voilà tout !
+
+--- Et tu oubliais Typochronos, s'écria le barbier, qui se disposa à raser Atta. C'est mal, très mal.
+
+Il lui mit une espèce de serviette au cou. Atta se laissa faire, ne pouvant échapper à Typochronos, qui ajouta :
+
+--- Au moins, si je retrouvais Amon ! Passe pour Zopiscus devenu, paraît-il, le poète de l'Empereur. Zopiscus avait une peau rugueuse, et, d'ailleurs, sa passion pour sa barbe pointue sans moustaches ne m'agréait pas. Mais Amon, lui, était facile à raser, n'ayant pas de barbe, et surtout prodigue à payer mes services. Aristès et Nicodœmès ne lui ressemblent pas.
+
+--- Ces Grecs sont toujours à Rome? demanda Atta pour tenir tête à Typochronos.
+
+--- Toujours ! répondit celui-ci. Ce sont des clients assidus, mais avares. A peine se font-ils parfumer et peigner. Ailleurs, ils dépensent beaucoup, s'il les faut croire, mais non chez moi.
+
+--- Que disent-ils de la disparition d'Amon ?
+
+--- Des choses singulières, mais quoique leur compatriote, je les soupçonne d'exagération. Ainsi, ils m'assuraient dernièrement qu'Amon s'était fait juif, que, reçu par la proseuque, il allait se marier à une fille de cette religion. Est-ce concevable, dis ?
+
+--- Tout est concevable en cette existence tourmentée, dit Atta mélancoliquement Mais j'eusse mieux aimé voir Amon chrétien.
+
+--- Donc, tu es chrétien ! s'exclama Typochronos îndant, tu cachais jadis soigneusement ta religion. El il ajouta en aparté : « Tout est singulier depuis quelque temps. J'ai même effroi de devenir chrétien à mon tour. »
+
+--- Cela viendra, assura Atta, qui la quitta, complètement rasé. Cela viendra, et plus tôt que tu ne le penses.
+
+Au forum Romanum, c'étaient encore des chrétiens qu'Atta rencontrait. Beaucoup jetaient de fréquents r de mépris vers les statues de dieux et de déesses des portique, cliques et des Temples, et se refusaient de les saluer de la tête comme le faisaient les polythéistes. Quelquefois, autour d'eux, se formaient des attroupements de citoyens voulant leur faire un mauvais parti, mais alors, comme si un mot d'ordre était venu de haut, des Prétoriens perçaient la foule, qu'ils dissipaient à coups de ceinturon détaché de leur tunique de cuir.
+
+Il s'étonnait de n'avoir pas rencontré encore Maglo. L'Helvète ne cessait plus ses imprécations contre Rome et Elagabalus, et lui qui, dès son arrivée, avait désiré s'en aller au plus vite, s'était singulièrement épris de la Ville Eternelle. Il l'avait aperçu la veille au Champ-de-Mars, faisant sur une foule moutonnante le moulinet de son formidable bâton et appelant les Romains à la destruction de la Pierre-Noire. Maglo devenait un maniaque, constamment suivi d'enfants et de chiens aboyants, recevant les lazzis de tous sans s'en inquiéter, et, en raison de ses allures, ne paraissant nullement menaçant pour le pouvoir, qui le laissait à sa sauvage liberté.
+
+Au Vicus Tuscus, il vit Ghéel qui marchait très vite. Jusqu'à présent, il frayait peu avec lui, d'abord en raison de l'infériorité d'esprit du Syrien, ensuite parce que sa douce franchise lui déplaisait. Il n'avait pas oub^é cette inénarrable cérémonie du Temple du Soleil qui le vit disputer Amon à Zopiscus à cause de lui. Cependant, des bruits étranges couraient depuis quelque temps sur le potier, accusé de s'entremettre avec l'affranchi d'un haut officier d'Elagabalus, peut-être Atillius, son mystérieux conseiller et son primicérius, qui ne reculait devant rien pour l'implantation, à Rome, du culte du Soleil. Ec cet affranchi, ajou-tait-on, était un prêtre du Soleil même, en raison de cette fonction une sorte d'homme sans sexe, comme les autres prêtres de cette Divinité.
+
+Il suivit Ghéel, et, entre eux, ce fut une longue course à travers les voies qui, du Vicus Tuscus par la Subura, menaient aux Carènes. Ghéel ne se doutait de rien, et, sans doute, ne cherchait pas à se cacher, car même il s'arrêta devant des boutiques de marchands de meubles, surtout de marchands de vases, comme pour rapporter de nouvelles formes de leur contemplation. Dans la Tabernole, il rencontra une femme qu'Atta reronnut pour Severa. Il lui causa quelques instants et passa outre, pendant que Severa ndit droit vers Atta, qui ne put se dérober.
+
+--- Adieu, Sœur, que la grâce de Kreistos soit avec toi ! lui dit-il en s'inclinant. Mais Severa, sans changer de visage, répondit :
+
+--- La grâce de Kreistos est dans le cœur de l'homme pur que n'habite pas le Péché, Atta !
+
+Intraitable comme toujours, et austère, et les yeux d'éclairs chargés, elle passa à côté d'Atta, qui se retourna très vite.
+
+--- Sœur ! t'ai-je offensée, et pourquoi cet accueil pour celui qui reconnaît ta haute sainteté ?
+
+Alors Severa, doucement, avec cette prescience passionnelle des femmes qui leur fait si facilement deviner l'ennemi caché :
+
+--- Non tu ne m'as pas offensé ; mais j'abhorre la sédition que tu souffles parmi nous depuis si longtemps, comme si cela plaisait à Kreistos. Mais Kreistos arrêtera la fourberie et le fourbe avec.
+
+Elle le laissa, et quand, les dents serrées, il vuulut retrouver Ghéel, Ghéel avait disparu.
+
+Alors, il gravit les pentes de l'Esquilin, où il savait que Zal habitait. Certes, sa pensée n'allait pas jusqu'à le vouloir rencontrer, mais à l'apercevoir causant avec quelque fonctionnaire d'Elagabalus pour l'accuser victorieusement de relations avec le culte du Soleil, l'abominable culte auprès duquel les autres n'étaient que des manifestations d'innocents esprits. Mais il n'eut pas cette suprême joie : Zal ne lui apparut point.
+
+De l'Esquilin, il alla au Viminal, ensuite au Quirinal. Toujours des chrétiens l'accueillaient avec les mêmes récriminations contre Elagabalus. Seulement, sans Atta, elles flottaient, informes, en rêve d'un Empire quelconque qui ne promettait pas les abominations de la Pierre-Noire ; avec lui elles prenaient un corps formidable, comme un bélier énorme prêt à tout faire sauter.
+
+--- Oui ! Rufus ; oui ! Ravidus, oui ! Cornifïcius, Krinias, Lvcinna, Ponticus, Servius, oui ! nous renverserons Elagabalus, et le prochain Empire nous devra son avènement, à nous les méprisés et les martyrisés !
+
+--- Et que faudra-t-il faire, Saint et vénéré Frère? Nous ne pouvons supporter Elagabalus, il est vrai, mais nous ne savons encore quelle sera notre conduite, nous, fils de l'Agneau !
+
+--- Vous le saurez à l'heure propice. En attendant, écartez les suggestions mauvaises, surtout venant des membres de Kreistos.
+
+--- Eh quoi ! nous devons-nous méfier de nos Frères ?
+
+--- De quelques-uns, manifestement perdus par le Serpent.
+
+Et Rufus, et Ravidus, Cornificius, Krinias, Lycinna, --- une femme ! --- Ponticus, Servius :
+
+--- Parmi ceux-là, il faut compter Zal, est-ce pas, Frère vénéré ?
+
+--- Je n'ai pas prononcé son nom, dit Atta en souriant. Si vous dites Zal, c'est que l'Esprit vous a inspirés, sans doute, et nous devons alors nous incliner. Mais Zal n'est pas seul.
+
+--- Et Severa, et Ghéel, et les chrétiens orientaux aussi, Atta ?
+
+--- Sans doute, quoique je n'affirme rien. Les chrétiens orientaux ont des prédispositions à partager les erreurs de la Pierre-Noire, parce que l'Empereur est de leur race. Surtout les pratiques religieuses d'Elagabalus leur plaisent ; si on les écoutait, ils feraient de la doctrine de Kreistos la doctrine du Péché !
+
+Un frémissement, puis, en soupirs bruyants :
+
+--- Que Kreistos nous préserve de ce malheur ! Enfin Atta, les quittant :
+
+--- Zal habite l'Esquilin ; Zal est votre voisin ! Severa traverse souvent l'Esquilin, qui sait? à la recherche de Zal! Ghéel fréquemment va rendre visite à un affranchi du primicérius d'Elagabalus, et je l'ai vu se diriger vers les Carènes aujourd'hui même. Quand la colère de Kreistos fondra sur la Pierre-Noire, nous séparerons l'ivraie du bon grain, n'est-ce pas/ 1 nous retournerons le bon grain à la terre et jetterons l'ivraie au feu, ainsi que le dirait notre Frère M agio, dont les idées sur la substance divine ne sont pas les miennes, ni les vôtres, mais qui a comme nous tous l'horreur du péché que Zal, Severa, Ghéel et les chrétiens orientaux adoreraient volontiers, si nous n'étions là, pour défendre Kreistos, fils de Dieu, Kreistos, trois fois saint !
+
+# 13\.
+
+Les Kreistos peints se fondent en une ombre délicieuse, et des ornements symboliques s'enlèvent, troubles, sur un fond bleu, un fond de mer qui est de l'eau jaillissant d'un rocher que frappe un agneau de sa patte armée d'une baguette fleurie. Et des poissons y nagent, et à des pointes d'arbres vaporeux pendent des fruits vers lesquels se glissent des serpents, la gueule entrouverte, sous le regard de soleils levés à des bords de montagnes violettes, éloignées.
+
+Et ces peintures, qui retracent aussi d'autres sujets, ne sont pas habituelles aux salles des assemblées chrétiennes, mais plutôt à des Eglises mystérieuses, participant du Kreistos et du Soleil, qui est le dieu égyptien Osiris, le dieu assyrien Bel, le dieu perse Mithra, et que des millions d'êtres adorent sous d'autres noms.
+
+Elles sont une reconstruction hardie, par le Symbole, du Culte de la Vie, par Kreistos qui l'humanise, la rend miséricordieuse et douce, la met à la portée des cœurs et la berce dans les larmes tendrement apparues au : :uil des cils.
+
+Elles sont une protestation contre l'Occident chrétien qui se fige dans l'idéalisation de Kreistos, une idéalisation sr.ns images et sans lien avec les autres cuUes, et ainsi manifestent un schisme avec l'Eglise de Rome, qui, muette, attend l'heure de dévorer les chrétientés adversaires de sa systématisation.
+
+C'est une salle ignorée de beaucoup, dont l'entrée expire au seuil d'une maison en ruines du Viminal, abordée prudemment par un couloir en voûte qui s'effrite, à peine éclairée d'une lampe de terre en forme de chaussure. 11 fait nuit, et des rayons de lune mordent des éventrements de cubiculas, des renversements de colonnes en une cour où s'arbore une puissante végétation de ronces, de mauves et de chardons en mer mouvementée jusqu'à un escalier suspendu dans un vide, un escalier sans rampe qu'obombre une muraille haute crevée d'ouvertures de fenêtres qui blanchoient sînistrement.
+
+Des chrétiennes et des chrétiens entrent, presque tous Orientaux, reconnaissables à leurs vêtements bigarrés, généralement en soie, à leurs bonnets coniques, à leurs robes flottantes, surtout à certaines allures démonstratives jurant avec celles des Occidentaux, toujours gelés dans le décorum et la dignité.
+
+A l'entrée, Zal reconnaît les assistants, parmi lesquels une femme, à la stola et à la palla blanches, à la chevelure noire abondante, qui lui sourit doucement :
+
+--- Je suis venue, car Kreistos est grand, et ce qu'il veut se fait bientôt !
+
+Elle descend un escalier en vrille, aboutissant à la salle, très grande, soutenue par des piliers carrés que décorent des T et des croix équilatérales aux extrémités à angles rentrants, et éclairée de flambeaux de cordelettes recouvertes de cire, dont la lueur coule, jaunâtre, du haut de lampadaires de bronze debout sur le sol à la mosaïque confuse.
+
+Ils sont nombreux, les Fidèles venus pour célébrer les Mystères du Kreistos oriental. Les femmes, séparées des hommes, avec un passage au milieu, menant à une sorte de sanctuaire coupé d'une galerie de marbre recouverte d'une étoffe bleue, <>ù s'érige un autel semblable à un piédestal carré, coiffé d'une sorte de nef d'or gaufré : au fond, dans un resplendissement de flambeaux cachés, un Kreistos peint, agrandi dans sa propre immobilité, la tête auréolée d'un cercle rond en lune énorme, la poitrine nue ensanglantée, les bras nus d'où dégoutte du sang, la face pâle aux yeux tendrement ouverts sur l'assistance, la chevelure noire sinuant dans le cou et sur les épaules, exquisement !
+
+Et la croix à laquelle il est cloué n'est pas la croix, mais le T, qui est le tau égyptien, qui est le rayonnement tronqué du soleil élargi, et le signe révéré depuis longtemps par les peuples, sous une forme simple, dû Principe de la Vie.
+
+En haut, un bruit de porte qui se referme ; tous les Fidèles sont là, recueillis et muets.
+
+Zal traverse le passage du milieu, et apparaît dans le sanctuaire, et ouvre les bras comme le Kreistos, et agite faiblement les lèvres, et semble prier, les yeux levés, et se tourne vers la nef d'or, et se prosterne à plat, dans le resplendissement du fond.
+
+L'assemblée s'agenouille, et un murmure confus, comme un bruissement d'abeilles échappées de la ruche, monte vers les voûtes, à peine coupé des gémissements faibles que pousse Zal, là-bas.
+
+Un chrétien approche, et se dévêt de sa tunique, et montre son torse nu, le renflement de ses tétons nus, et encore élargit les bras en croix. Zal le pique sous le cœur d'une lame d'or, et recueille le sang dans une coupe d'or qu'il élève plusieurs fois, pendant que le chrétien s'éloigne, les mains jointes, sous le bras sa tunique ensanglantée.
+
+Une femme, jeune, et grande, et maigre, se dirige vers le' sanctuaire, sur elle les yeux de l'assistance émue, et aussi se dévêt jusqu'à la taille de sa stola, et écarte l'ouverture d'une tunique de dessous, et arrache une chemise de lin qui laisse entrepercevoir sa poitrine mince, à peine rebondie de deux seins blancs. Elle étend ses bras, et Zal lui pique la chair de sa lame d'or, et recueille son sang dans la coupe d'or, sans qu'un léger cri de la martyrisée lui remue les plis de la face.
+
+Une heure durant, les assistants vont et viennent, successivement piqués à la poitrine par Zal, qui a maintenant de sang pleine la coupe, qu'il repose sur l'autel au chant extraordinaire des adorateurs de Kreistos, toujours immobile au fond.
+
+Elle aussi, Severa, s'est dévêtue, et montre aux Fidèles sa poitrine nue qui fait un éclair blanc, et Zal a frémi en la piquant de sa lame d ; or creusant un trou de sang sous le sein gauche, et il n'ose la regarder regagnant sa place, les deux mains à sa blessure et prononçant, défaillante, les noms confondus de Kreistos et de Zal !
+
+Une musique bramante qui grandit, une musique dorgue hydraulique que touche un bel éphèbe aux longs cheveux sur un cou nu, et dont la passion tourmentée accable les hommes et les femmes jusqu'à les faire pleurer en un émoi des entrailles venu !
+
+Un chant de tous qui découpe sa mélopée attendrie à la musique de l'orgue, un chant que piquent des éclats de voix féminines et qu'assurent, sur des basses profondes, les éclats des voix masculines roulant puissamment dans la salle qui s'illumine de ses Kreistos et de ses Agneaux !
+
+Lui-même, Zal, fait tomber sa tunique, et son torse nu émerge, jaune, et il se pique le dessous du sein avec la lame d'or, et il recueille son propre sang dans la coupe d'or reprise sur l'autel à la nef gaufrée.
+
+Encore une musique bramante, et le chant des hommes et des femmes. Puis, un agenouillement qui fait un bruit précipité, et des remuements de bancs, et des prières discrètes, et comme un emmêlement de mains joignant les corps rapprochés, et un baiser d'homme à homme, de femme à femme, un baiser sur la joue courant de place en place avec un léger claquement de lèvres.
+
+Zal, qui s'est relevé, a appelé un Fidèle, qui vient boire à la coupe d'or. Et tous, s'agenouillant au pied de la galerie de marbre, viennent aussi boire le sang amassé par la lame d'or de Zal, ce sang, le leur, que la fraternité de la coupe confond sans dégoût.
+
+Severa boit également, et une goutte de sang retombe sur sa poitrine revêtue, une goutte qu'empressé Zal veut essuver avec un pan de sa tunique, comme s'il eût cru à une blessure réelle, la blessure qu'il lui fît, tout à l'heure, avec sa lame d'or.
+
+Enfin, il boit le dernier après Severa, et il ne reste plus, dans la coupe, de ce sang de tous maintenant prosternés dans la suprême adoration de Kreistos.
+
+C'est au tour de la confession mutuelle. Chaque femme choisit son confesseur, et bientôt ce ne sont que pénitentes, belles presque toutes, et jeunes, et implorantes, et haletantes de remords imaginés, aux genoux d'un homme tendant une oreille à leur voix chuchotante, et il n'est pas d'homme qui n'ait sa pénitente, et il n ; est pas de femme qui n'ait son confesseur.
+
+Severa va vers Zal, et les voilà l'une aux genoux de l'autre, et ce que dit la patricienne au Perse, assis sur un escabeau bas, lui fait branler doucement la tête, et donner à sa mobile et véhémente physionomie à la barbe brune taillée court, une expression de confusion.
+
+--- Je me confesse de trop penser à toi, de voir Kreistos en toi, de n'écouter que toi, de ne m'inspirer que de toi. Et cependant, je le sens, cet envahissement de toi en moi ne soulève rien de ma chair, et c'est mon esprit qui répond au tien. Mais, c'est trop de cette présence constante de toi, Zal, et je m'en confesse, j'implore le pardon de Kreistos, par toi qui es ici le prêtre de Kreistos !
+
+--- Sœur, répond tendrement Zal qui essuie furtivement quelques larmes, le Péché prendrait vite naissance en toi, si l'image de la créature continuait à y couvrir l'image du créateur. Kreistos me suggère de te punir, Severa, et tu écouteras Zal qui espère unir son âme à la tienne, au jour de la Mort vainqueur de tout, mais non de l'Amour !
+
+--- Quoi! tu veux me punir, Zal! tu veux me punir !
+
+--- Nous ne nous verrons plus, et ainsi ma face ne se dressera pas devant la face de Kreistos. Il le faut, il le faut !
+
+--- Non ! non ! non !
+
+Et Severa ne peut retenir ses sanglots, et prend les mains de Zal, devenu faible :
+
+--- Non ! non ! non !
+
+Mais c'est la fin de la confession. Con.me sur un mot d'ordre, les confesseurs imposent les mains sur les têtes des pénitentes, les belles têtes maintenant reposées sur leurs genoux. On dirait même que les pénitentes ont déposé dans les girons mâles un baiser qui fait fermer longuement les yeux aux confesseurs, comme sous un spasme intérieur. Aussi, Severa veut les imiter, mais Zal l'arrête :
+
+--- Le baiser aurait maintenant un danger ; je ne le veux pas.
+
+Se disposent à partir hommes et femmes. L'orgue hydraulique a des plaintes désespérées ; des chants gémissent, et devant le Kreistos du fond, qu'à peine dore la lueur expirante des flambeaux cachés, les Fidèles se prosternent encore. La voix du bel éphèbe se mêle à l'harmonie mélancolique; telle une eau trouble coupant des rives aux arbres pendants, aux roseaux érigés en forêts infinies de colonnes balancées, avec des trouées de ciel gris, des trouées de paysages inviolés dans leur majesté brouillassante. Ah ! Kreistos ! Ah ! Kreistos ! Pour assurer ton triomphe ; pour que tu passes, blanc soleil, sous l'arc de ta propre divinité et foules à l'aise les nuques des humanités se préparant glorieusement dans les devenirs à ce que tu les conquières, que ne feraient tes Adeptes, surtout tes Adeptes orientaux, en toi adorant la source de vie, la grande mer d'où les êtres coulent sans fin dans le Cosmos, la haute montagne de la Grâce et de la Passion, que le véritable Croyant gravit sans crainte ? Les flambeaux s'éteignent ; dans l'agonie des lueurs, le Fidèle étreint la Fidèle, des baisers sont échangés, pendant que le bel éphèbe ne cesse de chanter au son de l'orgue, dont les dernières trépidations s'achèvent en cascades de sanglots.
+
+--- Viens ! Viens !
+
+C'est d'une voix terrible que Zal appelle Severa. Les ruines de la maison du Viminal ont un aspect sinistre, surtout l'escalier qui se balance dans le vide et les ouvertures de la haute muraille par où pleure la lune, maintenant rouge, qui dévale au bas du ciel grimaçant de nuages noirs. Ils filent l'un à côté de l'autre sans se parler, et, la lune disparue, la nuit se fait ; des ombres de monuments gigantesques se dressent; des bruits de patrouilles battant les voies arrivent jusqu'à eux.
+
+--- Viens! Viens !
+
+Un fusse fait choir Severa, qui pousse un cri. Zal envoie au hasard dans la nuit ses mains, la saisit vigoureusement par l'épaule, par les seins, par la croupe, bondissante sous l'étoffe. Et il la serre à lui :
+
+--- Viens ! Viens !
+
+Ils vent très vite, par des rues noires, que raient des lumières de lampes placées devant des niches de dieux. C'est, autour d'eux, des maisons hautes, des thermes aux couloirs mystérieux, des colonnes qui font des lignes colossales dans un ciel opaque, des arcs, des carrés de murailles derrière lesquelles vont et viennent des soldats frappant le sol de leurs piques, des îles et des quartiers seulement connus de Zal, qui les traverse d'un sûr instinct jusqu'à la porte de Salaria, souvrant sur la Campagne, allongée là-bas en des vapeurs du matin de plus en plus clrires. Alors. Severa. qui n'a cessé de pleurer doucement, se reconnaît :
+
+--- Ma maison est à droite. Voici la Voie Ardeatina ! j'aperçois la villa où Glicia dort pendant que son épouse assiste à l'assemblée des chrétiens orientaux.
+
+--- Tu n'iras pas seule, répond Zal ; la Campagne est fréquentée de soldats qui t'arrêteraient, ou de malfaiteurs qui te violenteraient. Je vais avec toi. Ce n'est pas Glicia qui m'en empêchera !
+
+Severa montre à Zal une borne de la Voie, qui émerge dans l'apparition du matin.
+
+--- Je t'attendis là, il y a bientôt une année, quand tu te rendis au Camp avec Maglo. Je te crus arrêté ou tué avec lui. Aussi demandai-je à être instruite sur ton sort à un officier qui m'assura t'avoir relâché.
+
+--- C'est Atillius, dit Zal, peut-être le seul des Gentils fav rable à Kreistos.
+
+--- Je ne te l'ai jamais dit, mais tu le sauras. Cet Atillius était avec deux officiers dont l'un me fit accroire que des soldats t'avaient tué en route. Je m'en allai vite chez toi, j'ouvris la porte de ta chambre, pauvre, hélas ! mais habitée par la Grâce, et j'y déposai des fleurs. Tu les as vues !
+
+--- Oui ! plus tard, répond le Perse après un silence. Je passai quelques jours avec Maglo dans les sépultures chrétiennes que nous mîmes à réfection, car une voix intérieure me dit que nous mourrons bientôt. Rassure-toi, je dis bientôt, mais non demain. Or, je préparais avec Maglo la dernière demeure de nous tous. A mon retour, je pensai que ces rieurs, complètement séchées, venaient de toi ; mais je ne t'en ai rien dit aussi. Elles sont là, depuis.
+
+Il lui prend une main, lui fait palper, sur le cœur, entre la tunique et la subucula, un sachet d'étoffe renfermant les fleurs.
+
+--- Et elles resteront, et elles s'enseveliront avec moi, dans la sépulture qui m'attend !
+
+--- Où j'irai te rejoindre, s'exclame Severa, car si je ne suis ton épouse sur la terre, je le serai dans le ciel.
+
+Ils se quittent devant la villa, simplement en se serrant les mains, sans même le baiser de paix, non par crainte d'être vus, car tout est désert et sombre, mais par un sentiment qui les retient mutuellement. Et il a été assez puissant, ce sentiment, pour détruire de l'assemblée des chrétiens orientaux tout souvenir des piqûres de sang sur les poitrines nues, et des baisers dans les girons des confesseurs, et des rapprochements sexuels de la fin. Ils ont été chastes et le seront encore, parce que, forts en Kreistos, la chair ne parle pas en eux, mais l'indestructible et vivant Esprit !
+
+# 14\.
+
+Zal se réveillait dans le soleil de sa chambre à peine meublée d'un lit de planches, d'une table très grossière et d'un escabeau pliant. Au-dessus du lit, sur une étroite planchette à la muraille retenue par des cordelettes de cuir, un rouleau de papyrus reposait, et il le prit, s'absorba longtemps dans la lecture d'un évangile oriental.
+
+On frappa : la porte aux panneaux disjoints s'ouvrit, laissant passer Ghéel !
+
+--- Il t'attend ; il désire te parler. Je t'ai fait connaître à lui, et c'est Madeh qui a insisté pour qu'il te vît.
+
+--- Qui donc, Frère? demanda Zal.
+
+--- Atillius, tu sais, Atillius, le maître de Madeh qui demeure aux Carènes, de Madeh, mon frère de Syrie.
+
+Zal se leva, ne comprenant rien à ce que disait Ghéel, dont le langage était toujours précipité. Il se fit expliquer : Ghéel était reçu depuis longtemps auprès d'un ami d'enfance nommé Madeh, affranchi par son maître, Atillius, le primicérius que tout Rome connaissait, au moins de nom. Il était bon pour son affranchi, Atillius ; il l'avait voué à la Pierre-Noire. Il l'aimait, oui, il l'aimait! --- Ghéel s'étendit sur le genre d'amour d'Atillius pour Madeh ! --- Un jour, le primicérius lui demanda, à lui Ghéel, si les chrétiens étaient prêts à soutenir l'Empire, pour eux si indulgent. --- Alors, je parlai de toi, continua Ghéel, de toi qui assures que Kreistos implantera la Vertu dans le fumier de l'Empire, de toi qui es l'apôtre des chrétiens orientaux, et cela lui parut si intéressant, qu'il voulut que je t'emmenasse chez lui.
+
+Ils descendirent les huit étages de la maison, dont des ménages pauvres habitaient les chambres basses, pleines de rumeurs de métiers. Ghéel remarqua que les voisins de Zal se rangeaient prestement, comme s'ils eussent eu peur de cet homme, duquel on disait qu'il assistait à des assemblées mystérieuses de chrétiens où l'on buvait du sang d'enfants égorgés. Tous étaient des sectateurs des dieux des trois continents, et, parmi eux, des laveurs et des embaumeurs de morts intéressés à combattre Kreistos, parce qu'il commandait que les cadavres fussent simplement enfouis dans la terre, au lieu d'être brûlés après avoir été lavés et embaumés. Ils connaissaient fort peu Zal, et déjà l'accablaient, en dessous, de toutes sortes d'injures, qui ne le touchaient pas.
+
+Dans la rue, justement, ils croisèrent le convoi d'un polythéiste, qu'ils saluèrent, malgré qu'on ricanât à ce salut. Le mort, un petit fabricant de papyrus, était porté dans un cercueil par quatre lecticaires. Un désignateur, suivi de licteurs vêtus de longues robes noires, conduisait le convoi composé des parents, des amis, des ouvriers et des voisins du quartier où le défunt avait longtemps exercé son industrie. Des musiciens ouvraient la marche : des joueurs de flûtes, de trompettes et de cors, alternant avec des pleureuses qui déchiraient leurs vêtements et se couvraient de poussière cueillie au bord des trottoirs. Un archimime, gêné ralement à la suite de tous les convois de la Région, grimé exactement comme le défunt, contrefaisait ses gestes, parlait comme il avait parlé, pendant que ses fils, la figure voilée, et ses filles, la tête nue et les cheveux épars, se traînaient derrière en gémissant.
+
+Ils coupèrent rapidement jusqu'au Cœlius, et la petite maison <\c* Carènes s'ouvrit bientôt. Le janitor eut un mouvement :
+
+--- Qu'a le Maître Atillius? Après Ghéel, cet homme, qui est pauvre sans doute ! Est-ce qu'il viendra souvent ici, me forcer, moi, Janitor, à lui ouvrir les portes de sa maison ?
+
+Mais cela en aparté, car il eut un grand salut pour Ghéel et une inclination discrète pour Zal.
+
+Madeh accourait vers eux.
+
+--- Voici Zal, dit Ghéel lui présentant le Perse, qu'il prit par la main et conduisit dans l'atrium, où le crocodile émergea de son bassin, le singe grimaça en se grattant une cuisse, et la paon rayonna, fastueux. Il le quitta, pour revenir bientôt :
+
+--- Il t'attend, et c'est moi qui vais te conduire auprès de lui !
+
+Zal n'était point attiré par les choses étranges de la maison, surtout par la décoration des cubiculas disposées aux deux côtés du tablinum. Le péristyle était désert, et la gloire de ses colonnes rouges, dont les chapiteaux en lotus dominaient de haut un bassin qui pleurait au milieu, dans un étincellement de soleil, ne l'arrêta pas davantage. Madeh marchait devant, en une fuite de sa robe lâche, dont les rayures étaient bleues et jaunes, et qui laissait voir l'ondulation suspecte de sa croupe et de ses reins. Enfin, Atillius parut en un appartement retiré qu'éclairait un grand jour de la voûte, et, simplement, il fit signe à Zal d'avancer, pendant que Madeh s'en retournait.
+
+Le Perse, à le considérer, se dit que depuis le Camp des Prétoriens il avait maigri et pâli, que ses doigts minces et longs paraissaient sans force, que ses étranges yeux violets s'enfonçaient davantage dans un haut de face aux méplats légèrement ivoires. Mais cette impression fut rapide, car Atillius le pria de s'asseoir sur un siège de bronze, en une égalité qui le gagna.
+
+--- Je te sais vaillant et sage, dit Atillius, et le syrien Ghéel, l'ami d'enfance de mon affranchi, m'a quelquefois causé de toi. J'ai donc voulu te connaître davantage. Je t'ai appelé pour des choses graves, des choses qui concernent ton Kreistos.
+
+--- Entre Kreistos et la Pierre-Noire, répliqua Zal, il n'y a pas de rapprochement, sinon qu'elle prépare son avènement. Le dogme de la Vie physique est le vôtre ; superphysique, le nôtre. Mais Kreistos sait ce qu'il veut, et pourquoi il veut ce qu'il fait.
+
+--- Je vous sais bienveillant ; Antoninus et Sœmias vous sont débonnaires, reprit Atillius. J'aime votre Kreistos, mais votre Kreistos, par la bouche enfiellée de quelques-uns de ses croyants, nous est ennemi. Tu es intelligent, toi, et tu vas entrevoir aussitôt la portée de mes paroles !
+
+Et il lui apprit qu'un nommé Atta ne cessait depuis quelque temps d'exciter les chrétiens contre Elagabalus, les poussant ardemment à une rébellion dont eux-mêmes ne retireraient aucun profit.
+
+--- Sais-tu qui guide Atta? Mammaea, qui se propose de tuer Antoninus et nous tous pour son Fils, le Caesar Alexander. Les chrétiens ne gagneront rien à ce changement, car Mammaea a moins que Sœmias le goût des choses de Kreistos.
+
+A ce nom d'Atta, Zal eut son habituel sourire méprisant :
+
+--- Il est capable de tout, celui-là, même de violer sa mère, s'il Fa encore, et de renier Kreistos, s'il ne l'a déjà renié !
+
+--- Vous êtes d'autres chrétiens, ajouta Atillius, qui ne vous rebellez pas contre Antoninus, parce que vous êtes de l'Orient. Eh bien ! je propose un pacte entre Antoninus et vous. Soutenez l'Empire, et l'Empire vous soutiendra. N'a-t-il pas déjà accepté votre Kreistos dans ses temples? Il est parmi nous, votre Dieu !
+
+Suivi de Zal, il alla vers le temple où Ghéel avait pénétré. La porte circulaire s'ouvrit, et Zal vit les statuettes des dieux égyptiens et phéniciens, les T, les brasiers d'encens fumeux, la Vesta et le grand Kreistos noir en face du Cône-Noir. supporté par un piédouche de pierreries.
+
+--- Tu le vois, nous reconnaissons, nous, la gloire de votre Kreistos !
+
+Ils marchèrent lentement, et les yeux violets d* Atillius brillaient, et Zal se laissait aller à lui. Le primicérius, comme s'il eût tenu à persuader le Perse, lui parlait de l'Androgyne, de cet Etre Supérieur apparu à l'aube de la Création, et possédant les deux sexes, séparés depuis. Leur réunion formait tout le symbole de la Pierre-Noire, signe concret du Culte de la Vie, qui, stérilisant séparément les sexes, fait naître enfin l'Un, l'Eternel, l'Homme-Femme à deux visages, à quatre pieds et à quatre mains, gisant dans . toute religion.
+
+--- L'homme ne se donnant qu'à l'homme, et la femme qu'à la femme, qu'arrivera-t-il ? La Nature détournera son flot de vie vers l'un, désormais possédant les attributs de l'autre, et ce sera l'homme avec le sexe de la femme, et la femme avec le sexe de l'homme, mais en plus la grâce, la force, l'intuition, la beauté et la suprême intelligence des deux.
+
+Mais Zal l'arrêta :
+
+--- Nous partageons cette doctrine, à la différence que cette Unité sera dans les Ames et non dans les Corps! Notre Kreistos est bien l'Androgyne, il est vrai, avec la grâce, la force, l'intuition, la beauté et la suprême intelligence de l'homme et de la femme divinisés en lui, mais il a été homme avant, avec un seul sexe. Vous prenez le signe pour la signification, le fini pour l'infini, voilà tout. Nous élargissons dans le par-delà l'Androgyne.
 
 ...
