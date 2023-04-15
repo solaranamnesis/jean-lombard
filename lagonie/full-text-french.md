@@ -2599,4 +2599,522 @@ Mais Zal l'arrêta :
 
 --- Nous partageons cette doctrine, à la différence que cette Unité sera dans les Ames et non dans les Corps! Notre Kreistos est bien l'Androgyne, il est vrai, avec la grâce, la force, l'intuition, la beauté et la suprême intelligence de l'homme et de la femme divinisés en lui, mais il a été homme avant, avec un seul sexe. Vous prenez le signe pour la signification, le fini pour l'infini, voilà tout. Nous élargissons dans le par-delà l'Androgyne.
 
+Ils devenaient tous deux très obscurs, se chicanant sur des ombres de mots ; Atillius accusant Zal de se laisser aller à des rêves sans consistance, de ne pas être certain de l'autre vie dont il lui parlait ; Zal assurant Atillius que la tentative matérialiste d'un Androgyne était contraire aux lois naturelles, donc à Kreistos, qui les avait établies. Et le Perse était maintenant riche d'une telle supériorité spirituelle qu'Atillius s'exclama :
+
+--- De qui es-tu fils, toi? Où as-tu appris cela? Tu me stupéfies !
+
+Il grandissait, Zal, une clarté de fierté au front, avec aux yeux une douceur et une intrépidité d'Apôtre ! Les mains dans la ceinture de cuir de sa robe qu'ouvrait sur la poitrine un triangle renversé de subucula, il répondit calmement :
+
+--- Ah ! je compte parmi mes ancêtres un puissant humain qui eut renouvelé la face de la terre, si la Mort l'eût laissé faire.
+
+H prononça son nom. C'avait été un grand roi, qui passa impérieusement sur l'Asie, au bruit des tambours et des trompettes de guerre, en un accompagnement de millions dhommes, qui laboura de ses chars plus de sols qu'un rourrier ne traverserait en dix années, qui détourna des fleuves, arrêta des mers, ht crouler des montagnes, rasa et érigea des villes, puis s'endormit calmement un jour, croyant avoir tout fait et tout défait. Hélas ! Sa mémoire coula dans le Temps comme un ruisseau dans le sable ; son corps, embaumé en un monument de trois cents coudées, les quatre vents du ciel le dispersèrent un jour, et il ne resta rien de lui, sinon des descendants de plus en plus obscurs ayant de son sang, mais non de sa gloire ! Il se tut un instant, sous l'émotion de cette extraordinaire révélation, pour reprendre tout bas, malgré qu'Atillius l'entendît :
+
+--- Je serai moi-même à ta place, Ancêtre, que je renoncerai à la domination des Corps pour conduire les Ames vers Kreistos, car tout est vain sans l'Agneau !
+
+Ils se promenaient toujours, d'un appartement à un autre, se rapprochant de l'atrium, d'où la voix de Ghéel et de Madeh leur parvint. Zal dit alors brutalement :
+
+--- Vois, Madeh ! ton prêtre. Est-ce que sa nature d'homme a changé depuis, et crois-tu qu'un double sexe crèvera sous sa peau à force de le violenter ?
+
+Atillius eut un sourire :
+
+--- Si ce n'est lui, ce sera un autre. La poursuite de l'Androgyne doit se faire, et le Principe de la Vie triompher !
+
+Ne démontrant pas comme Zal, il se contentait d'affirmer, toujours perdu dans sa vision de l'Etre Unique, qui voilait son amour pour Madeh, purement de chair. Et il ne rougit pas de ce que dit Zal, comme Zal ne rougit point d'aborder ce sujet de l'amour mâle, si délicat.
+
+Ils avaient oublié, durant cette discussion, l'objet même de leur rencontre : l'espèce d'accord à établir entre les chrétiens et Elagabalus. Le primicérius y revint, insistant sur le bénéfice que Kreistos retirerait.
+
+--- Il faut que je t'apprenne ceci, dit Zal. Les chrétiens occidentaux en grande partie n'en voudront point, mais les chrétiens orientaux accepteront sans doute. Nous défendrons Elagabalus, non pour soutenir son Péché, qui fait se voiler la face du ciel, mais pour préparer les voies à l'Agneau dont les secrets sont impénétrables.
+
+Il le quitta là, toujours fier, n'acceptant rien d'Atillius, qui lui offrait sa maison, des vêtements et de l'or. Et il reprit Ghéel parcourant le jardin avec Madeh qui de loin ressemblait, baigné de soleil, à un être surnaturel se mouvant dans de la lumière. Les deux chrétiens passèrent sous le regard du janitor et de quelques esclaves, absolument ahuris des hôtes que depuis quelque temps recevait leur maître Atillius. Dans la rue, Ghéel dit à Zal :
+
+--- Mon pauvre frère Madeh est malheureux, bien malheureux. Vois-tu, notre pauvreté vaut mieux que sa richesse, car il est comme un paon en cage, et sa vie ne lui appartient plus !
+
+# 15\.
+
+--- Vois-tu, Rusca, Severa est entrée à l'aube, venue de je ne sais où. Même que j'ai entendu la voix d'un homme qui a dû l'accompagner jusqu'à la villa, et cet homme, j'en jurerais, était ce Zal qui soutient Elagabalus. Severa a beau paraître vertueuse, et moi-même je puis lui être indulgent, il n'en paraîtra pas moins un adultère avec ce Zal. Et que diront les Romains de Severa, de Severa l'épouse de Glicia, qui compte parmi les siens un dictateur célèbre dans nos fastes ? Longtemps, j'ai gardé pour elle la débonnaireté de l'époux confiant ; mais, maintenant, malheur à celle qui me déshonore avec des gens de basse naissance !
+
+Glicia toussota, la face en sang, les poings crispés, et cracha, les jambes écartées en un effort terrible, soutenu par Rusca, qui lui faisait :
+
+--- Maître, Severa connaît ses devoirs, et si elle va aux assemblées de chrétiens, ce n'est pas pour mal faire, j'en jurerais à mon tour.
+
+Il s'évertuait à justifier Severa, ne pouvant accroire facilement qu'elle tromp t ât Glicia. Et il émettait de bonnes raisons en un attendrissement de paroles qui remua un instant le vieux patricien :
+
+--- Tu as peut-être raison, mais mon sang bout à songer à l'outrage, et je veux lui exprimer le mépris que j'ai d'elle, car, rentrer à l'aube, quand son époux flaire la mort, c'est mal, très mal !
+
+--- Elle songe à toi, Severa ; elle n'a jeté ses regards sur aucun autre, ne la peine pas ! C'est une âme iière, et quoique la loi te donne droit sur elle, elle te quitterait et vous seriez tous deux malheureux.
+
+--- Oh ! moi, je ne l'aime pas, articula Glicia, et son départ ne me toucherait pas. Je ne dis pas que cela ne soit ainsi pour elle.
+
+Il toussota encore, répétant, en ses habituelles confusions, qu'il n'aimait pas Severa, que peut-être celle-ci l'aimait. Mais il revenait, suivi de Rusca redoutant une scène très vive entre Severa et lui. Dans les cubiculas, des esclaves allaient et venaient, époussetant les meubles, lavant le sol, faisant reluire les ustensiles de la cuisine, mettant de l'air et de la lumière partout. Quoique rentrée de bonne heure, Severa s'était à peine reposée, et, maintenant, de concert avec l'ancilla, elle vaquait au bon ordre général, avec sa célérité qui ne se démentait pas.
+
+--- Oui ! oui ! Je l'ai dit ; cet homme, j'en jugerais, était ce Zal, criait Glicia.
+
+--- Maître, laisse-la, disait Rusca. La vois-tu, calme et confiante ?
+
+--- Moi aussi, j'ai été confiant, Rusca, mais je ne veux plus l'être !
+
+Il lui échappa*, retenant un toussotement d'une main, et courut vers Severa, en ce moment dans le tablinum. Il la saisit par le coude, d'un serrement obstiné :
+
+--- N'est-ce pas que c'était ce Zal ?
+
+Elle se retourna vivement, rouge et d*gne, ne sachant que dire et ne voulant répondre. Alors Glicia s'anima :
+
+--- Je l'ai dit, cet homme, j'en jurerais, était ce Zal qui soutient Elagabalus, et tu es ainsi un aide de cet Empire, et Zal est avec toi. Est-ce que je sais ce qu'il fait avec toi, celui-là? Réponds, femme, réponds !
+
+Il ânonnait et bredouillait, son poing maigre sur la face de Severa, qui répondit :
+
+--- Pourquoi ces violences? Tu sais bien qu'unie à toi, ma vie t'est consacrée !
+
+Mais Glicia devint terrible :
+
+--- Je puis te faire enterrer vive; je puis te jeter au bûchei et aux bêtes ; je puis te tuer et te faire tuer ! Je puis prendre un glaive et t'égorger ! Je suis le maître de ton corps, et si je n'en fais rien, c'est que j'ai pitié de toi. Oui ! j'ai pitié de toi, quoique adultère avec ce Zal. Rusca, qui assure le contraire, est vieux et ne voit pas clair comme je vois clair. Tiens, tiens, voilà pour ton Zal, voilà pour ton Zal ; pour ton Kreistos, pour ton Elagabalus, pour tous ceux qui viennent manger le pain de Glicia et boire le vin de Glicia !
+
+Il la frappait à la face du plat de la main, et comme elle reculait, il recommençait en une poursuite de coups de poing dans les seins. Elle s'en allait à reculons sans répondre, résignée, s'attendant depuis longtemps à être frappée dans une crise de Glicia, dont l'exaspération n'eut plus de bornes quand Rusca, qui accourait, l'arrêta, lui cassant presque les bras :
+
+--- Je vous vendrai tous deux comme esclaves, avec de la craie blanche aux pieds, et l'on dira de vous : Voilà le mauvais esclave de Glicia ; voilà la femme adultère de Glicia !
+
+Il écumait et ne toussotait plus ; mais Rusca, pâle et muet, l'entraînait de force, pendant que Severa, brisée sur une cathèdre, la face pleine de larmes, disait tout bas :
+
+--- Si c'est là le commencement de ta passion, Kreistos, que ton nom soit béni ! Cependant, tu sais bien que je n'aime point Zal avec la Chair, mais avec l'Esprit !
+
+# 16\.
+
+Sous les regards attristés de Mammaea, l'aïeule Maesa se taisait très richement vêtir de robes amples, surchargées de broderies d'or, et d'une palla pourpre, pendant qu'Alexander, maintenant un beau pubère au regard décidé, l'embrassait en une fureur de caresses qu'on eût dit les dernières. Les appartements du Gynécée, entrevus par des écartements de portes et de draperies, s'animaient de femmes qu'on vêtait aussi, et des Prétoriens, au service de Mammaea, au casque, au bouclier et au pilum d'argent --- des argyraspides --- se tenaient prêts à partir sur le commandement sec de centurions faisant sonner sur les mosaïques leurs soles de fer, à émaux bleus.
+
+Elagabalus obligeait Mœsa à assister, avec Sœmias, aux jeux du Cirque, le lendemain de son mariage avec Paula, une veuve de famille illustre, succédant à la répudiée Faustina, épouse du sénateur Pomponius, qu'il fit condamner à mort, et à une Cornélia, --- à laquelle --- ainsi pour Faustina, d'ailleurs --- il ne toucha jamais.
+
+Mammaea et Alexander, séparant leur cause de celle de lKmpereur, s'étaient refusés à ces fêtes ; et c'est pourquoi, abandonnés maintenant dans le Palais des Caesars, Alexander embrassait l'Aïeule, pendant que Mammaea glissait secrètement en son sein une fiole de poison d'Asie, qu'elle boirait avec lui à l'heure du danger, plutôt que de subir les coups ignominieux d'assassins présumés.
+
+Des éclats de longues trompettes d'airain et de lituus de cuivre appelèrent les argyraspides, qui coururent, le pilum haut, le bouclier recouvrant le corps en disques blancs. Et, suivant Maesa, dont deux esclaves soutenaient la palla, survinrent, à leur tête Paula, historiée comme un joyau, la face très pâle sous la pâte de fard, des femmes et des Vierges, d'appartements s'ouvrant de toutes parts en un bruit de portes et un froissement lourd de draperies, qui firent des éclairs à travers les colonnades immobilisées sous les voûtes ajourées de soleil, aux murailles s' enlevant, rouges et bleues, en des perspectives de nudités à peine esquissées.
+
+Elles montèrent dans des litières aux portières de cuir, que, sur leurs épaules carrées, des esclaves noirs à tunique striée d'écarlate et de vert emportèrent en un balancement qui fit rire joyeusement les Vierges. Le cortège allait sortir du Palais, quand une litière de soie, d'or et d'ivoire apparut et prit la tête avec Mœsa, seule. Scemias et Atillia étaient là portées par de vigoureux Helvètes blonds, se distinguant ainsi des autres litières portées par les noirs. Sur la place extérieure, des soldats attendaient, la javeline à une main, le bouclier de l'autre, et, en des fonds de voies rayonnantes, des cavaliers se dressaient, le casque immobile, les lames de la cuirasse étincelantes, entre leurs dents la bride de leur monture, en leurs mains une longue pique à oriflamme et un bouclier rond.
+
+Tout s'ébranla : d'abord les joueurs de trompettes et de lituus, adjoints de souffleurs de flûtes et de frappeurs de tympanons, puis les argyraspides marchant en une régularité décidée, puis Mœsa, Scemias et Atillia dans leur litière avec Paula ; puis les femmes et les Vierges, enfin les soldats et les cavaliers. Ce fut une procession bruyante, qui s'écoula vers le Grand Cirque aux triples étages de portiques, où apparaissaient déjà des têtes de peuple qui applaudissait.
+
+Elagabalus accourait de la Vieille-Espérance dans un char attelé de cerfs qui étonnèrent déjà si fort ; très beau en sa robe de pourpre pesante aux guillochures d'or, la tête tiarée et la face fardée. Le suivaient toujours, fardés comme lui, les yeux peints, les cheveux poudrés d'or, Hiéroklès et ZoticuSj ses familiers Murissimus, Gordius, Protogenès, d Hommes de Joie et des Femmes de Joie, des prêtres du Soleil mitres et un chœur d'individus à toge blanche et couronnés de lauriers qui, un volumen à la main, s'exclamaient en Poètes qu'ils étaient. Effectivement, c'étaient là les Poètes --- sans les Critiques ! --- que Zopiscus, maintenant de la haute familia d'Elagabalus, avait racolés pour exalter la gloire impériale et les faits et gestes impériaux.
+
+Désormais à l'abri de la faim et de la soif, bien vêtu et bien nourri, il était présentement très fier, Zopiscus, quoiqu'une ombre se glissât dans sa fierté ! L'Empereur, voilà quelques jours, l'avait marié à Habarr'ah, qui ne lui laissait aucun répit par ses ardeurs de vieille négresse. Elle était le revers de médaille du Poète, n'ayant jamais rien compris à cette fantaisie d'Elagabalus, qui avait uni un Poète tel que lui à une Ethiopienne de cet âge : seize lustres !
+
+Le Grand Cirque, long de six cents mètres et large de deux cents, était partagé dans sa piste ovale par la Spina, arête de briques aux deux extrémités formées de trois pyramides à unique base hérissée dans sa longueur de l'obélisque d'Egypte, apportée jadis par Auguste, d'une autre plus petite, et de sept phalles, aiguilles couronnées à leur pointe de dauphins et d'autels.
+
+La piste était vide, mais, des gradins aux portiques entourant les trois côtés du Podium érigé en colonnades, deux cent cinquante mille spectateurs se plaçaient qui, en un ouragan de cris, un soulèvement de têtes, saluèrent Elagabalus, Mœsa, Sœmias, Paula, Atillia, les femmes et les Vierges du Gynécée, les familiers et les Hommes de Joie, les prêtres du Soleil, les musiciens et les Poètes. L'Empereur avec l'Aïeule, Sœmias, Paula et Atillia, s'assirent dans le Podium, que des Sénateurs, des Consuls et des Vestales, blanches, vinrent également occuper.
+
+Le ciel, très bleu, découpait en ellipse le haut du Grand Cirque, et le soleil, qui menaçait d'arder bientôt, faisait un grand angle sur un des côtés, noyé d'un jaune enveloppement.
+
+Il s'assit, Elagabalus, regardant le peuple en un calme de bête repue, avec de fréquents regards vers les Hommes de Joie, pendant que Paula se figeait dans son rôle d'Impératrice, à côté de Sœmias, alerte, chiffonnant un bout de robe d'Atillia, et de Mœsa songeant à son autre fille, seule au Palatin, que l'on égorgeait peut-être maintenant.
+
+Dans les rumeurs déferlant toujours, elle se pencha vers Sœmias, qui sourit, nia :
+
+--- Non ! Non ! je te dis non, Maternité ! Ta fille te jure que non !
+
+Quelquefois, les spectateurs, en voyant des personnages s'installer autour de l'Empereur, suspendaient tout à coup leurs cris, et l'on entendait du dehors l'énorme marche de la cavalerie commandée par Atillius, circulant autour du Grand Cirque.
+
+Il arrivait que quelqu'un jetait sur la Spina des écorces de courges et de pastèques, ou même des fruits entiers ; c'était alors, dans la piste, l'apparition d'un désignateur à allure solennelle faisant un signe. Des mains se levaient sur le spectateur, qui s'enfonçait aussitôt dans le claquement des coups, et ces coups, se répétant plus loin, couraient sur d'autres têtes, le long des gradins, jusqu'à l'extrémité du Cirque, en une rapidité scandée.
+
+Des hommes grotesques se dressaient : des nains et des mimes dont la face s'allongeait démesurément et s'arrondissaient les yeux. Des gymnastes quelconques, les cuisses à peine recouvertes d'un étroit morceau d'étoffe, roulaient de haut en bas sur leurs pieds et leurs mains, retombaient dans la piste, et, poursuivis par d'autres désignateurs, remontaient très vite, dans le tremblement du rire général.
+
+Enfin, par une porte placée près des écuries, --- les carcères --- les musiciens débusquèrent dans l'arène, et un bruit de flûtes, de crotales, de tympanons, de lyres, de clairons, de tambours, de trompettes et de sistres, éclata. Ouvrant une marche de chars, d'athlètes, de chanteurs et de prêtres tonsurés comme ceux d'Isis et tiares comme ceux de Kybèle, Hiéroklès montait un attelage historié d'or, vêtu non en Jupiter Capitolin, comme l'usage, mais eu Grand-Prêtre «le la Pierre-Noire, avec la robe syrienne aux manches flottantes, la haute tiara, des joyaux au col et aux ts, et la face vermillonnée, tel qu'Elagabalus. Le cortège coula bruyamment dans l'arène ; les tympanons faisaient, au rythme aigu des flûtes, de grasses morsures d'harmonie ; les sistres vibraient dans le plein son des clairons et des trompettes, et les lyres, les délicieuses lyres, tenues très haut par des mains d'hommes émus, s'accordaient à l'étrange mélopée qu'accompagnaient, avec les tambourins, des battements réguliers de leurs mains, les deux cent cinquante mille spectateurs.
+
+Creva aussi dans l'arène une autre marche de déesses et de dieux de marbre et de bronze, portés sur des civières solides et sur des thensas attelés d'éléphants et de tigres jugulés. Des prêtres brûlaient de l'encens en des vases d'or, et les musiciens saluaient le cortège par un air exquis, revenant tantôt lent, tantôt précipité, qui s'acheva en une sorte de saltarelle au thème répété.
+
+Les Jeux allaient s'ouvrir, quand Elagabalus fît un signal. L'on vit descendre cérémonieusement les Poètes, qui déplièrent leur rouleau. Ils s'amincissaient dans le soleil grandissant, où n'émergeaient que leur tête noire, leur face rasée, sauf celle de Zopiscus toujours allongée de sa barbe pointue sans moustaches. C'était un hymne au Dieu-Elagabalus. maître de l'Empire et possesseur du Ciel, par Zopiscus composé, à chaque partie scandé par les groupes de Poètes dont il restait le chorège. Les spectateurs n'y comprenaient pas grandYhose, mais l'Empereur se délectait étrangement, poussant des Ho ! des Eheu ! des Euge ! très haut, dans le silence immense, et même applaudissait, coupant le Poème, qui s'acheva dans les cris forcenés des lecteurs.
+
+--- Poète !
+
+Une voix ironique et froide qui frappa en plein Zopiscus. Et, sur un gradin en face de l'Empereur, confondu dans le peuple, un homme se leva, qui étendit le bras, ouvrit une main :
+
+--- Poète !
+
+Plus ironique et froide, cette fois, et ironique et froide davantage, elle répéta :
+
+--- Poète !
+
+Zopiscus, clignant des yeux, reconnut Atta, pendant que le Cirque riait colossalement. Et ce qui était étrange, c'est que les Poètes n'avaient été applaudis que par Elagabalus et ses familiers, par sa mère, par Paula, par Atillia, par ses Hommes de Joie et les prêtres du Soleil ; le peuple désirait rester étranger aux adorations envers l'Empereur.
+
+Elagabalus, furieusement, cria à Zopiscus :
+
+--- Quel est cet homme? Je le ferai jeter sous les pieds des éléphants !
+
+Zopiscus ne comprenait rien à la conduite d'Atta, qui, pour braver ainsi l'Empereur, devait présentement être bien puissant. Et il l'était, puissant, Atta, plutôt il se sentait tel, grâce à l'impopularité croissante de la Pierre-Noire. Depuis quelques jours circulait dans le peuple le bruit d'un égorgement de Mammaea et d'Alexander, vaste crime qui, durant les Jeux du Cirque, mettrait du sang dans les rues de Rome, dans ses temples, ses thermes et ses palais. Aussi avait-il persuadé les chrétiens qui l'écoutaient à y assister pour semer le trouble, et ainsi déconcerter Elagabalus, dont les sicaires présumés attendraient le signal.
+
+Zopiscus se dressa orgueilleusement dans sa toge neuve, et, comme Atta l'avait appelé : « Poète », il lui cria très distinctement :
+
+--- Chrétien !
+
+Il répéta, pendant que des rumeurs éclataient :
+
+--- Chrétien ! Chrétien !
+
+Et il alla se rasseoir, très fier de sa réponse, bien à la tête des Poètes maintenant reposant leur rouleau sur les genoux. Mais Atta se leva de nouveau :
+
+--- Ce n'est pas pour Antoninus, ce Poème, mais pour sa Divinité Hiéroklès, notre Empereur Antoninus est Antonina !
+
+--- Antoninus est Antonina ! --- Et le rire des milliers de spectateurs courut comme une trombe jusqu'à Hiéroklès, qui leur faisait face du haut de son char, arrêté sous le Podium.
+
+--- Aux éléphants! aux Bêtes! ci ! au Tibre ! exclama l'Empereur. Le cirque entier s'émouvait. Beaucoup, n'ayant rien entendu, criaient en un désordre inouï; mais de nombreux cavaliers apparurent dans la piste, parcourue au galop pour annoncer les Jeux.
+
+Hiéroklès auprès de l'Empereur, les chars et les thensas rentrés, il y eut une accalmie. Elagabalus jeta un carré d'étoffe blanche dans l'arène : six chars à deux roues, légers et très petits, attelés chacun de quatre chevaux qui chauvissaient, s'échappèrent des écuries, et, rapidement, filèrent autour de l'arène, en un bruit doux. On entendait surtout les cris des cochers --- des auriges --- vêtus de tuniques de couleur, --- blanche, rouge, bleue, verte, pourprée et dorée, --- debout dans leur char, appuyés aux rênes attachées à leur ceinture où un couteau était passé pour les couper en cas d'accident.
+
+Sept fois, ils firent le tour de l'arène, tour à tour applaudis par des spectateurs qui se dressaient, en des hourrahs imprévus, quand leur couleur favorite gagnait sur les autres. Les chevaux écumaient, envolés en de la poussière, fouettés par les auriges voilés du soleil qui engloutissait tout. L'aurige vainqueur, de la couleur pourprée, qui atteignit l'extrême ligne blanche de la course, fila, accompagné de désignateurs, vers Elagabalus. C'était un beau jeune homme blond-roux, un Dace membru, aux yeux violents, qui plut tant à l'Empereur, qu'il descendit du Podium et l'embrassa sur les lèvres. Un grand cri ulula.
+
+Elagabalus voulut tenir tête aux spectateurs qui lui montraient le poing, les invectivant, les menaçant de la cavalerie, dont on entendait l'énorme piétinement, et sa voix grossissait, comme pour imiter les cris des Bêtes qu'il avait fait venir du Vivarium. Le Cirque se levait encore, lui adressait des gestes obscènes. Alors Elagabalus, soulevant sa robe, montra la nudité de ses cuisses, la nudité de son sexe épilé, pondant que d'autres spectateurs, surtout du peuple, lui répondaient en en faisant autant !
+
+Des femmes s'en allaient, sous le coup d'une terreur folle, devinant bien que ces Jeux finiraient par quelque tragédie. Mais d'autres chars couraient; les clairons et les trompettes sonnaient ; les désignateurs apaisaient avec des signes, et chacun se garait du soleil sous des pétases à larges bords.
+
+Cela dura jusqu'au milieu du jour. Elagabalus n'embrassait plus les vainqueurs, mais il leur donnait de riches vêtements, des coupes d'or et des pierres entourées d'or, des palmes tressées avec des bandelettes de pourpre, des sommes d'argent et des couronnes d'argent.
+
+Il avait fait promettre des vivres, qu'il fit distribuer aux spectateurs malgré leur accueil. C'étaient des viandes bouillies et des légumes cuits dans des sauces safranées, des fruits venus d'un peu partout, des pains entiers qui volèrent de place en place ; une colossale goinfrerie de deux cent cinquante mille bouches masticant ferme, éructant et crachant en des exclamations, s'élargit des bas gradins aux plus hauts. Elagabalus mangeait aussi ; sa colère passée, il était très gai, allant de Paula aux Hommes et aux Femmes de Joie, embrassant abominablement Hiéroklès et Zoticus, et, sans gêne, urinant du Podium devant tous !
+
+Les musiciens processionnèrent à nouveau, grossis de jeunes gens qui piquaient des triangbs de fer et choquaient vivement dans leurs doigts des morceaux de bois dur semblables à des tessons. On cessa de manger. Les Jeux reprirent dans le souffle d'attention extraordinaire des spectateurs qui virent Elagabalus jeter encore un carré d'étoffe, lequel vola un instant et s'aplatit dans l'arène, tout blanc.
+
+Les nains descendirent, courant à se saisir par un pan de leur tunique, mais vainement. Et les mimes, les rejoignant, firent des grimaces effroyables, des grimaces de masques de comédie jusqu'à un moment où des lutteurs, qui se faisaient frotter de ceroma, à une extrémité du Cirque, pour le saut, la course, le pugilat, la lutte et le jet du disque, les chassèrent de leurs pieds nus, pendant que des gymnastes de fantaisie, accourus, s'enfuyaient en voltes des pieds et des mains, pareils à des faucheux sur leurs pattes.
+
+Et ces athlètes exécutèrent leurs Teux. Les lutteurs se poursuivaient et se saisissaient, s'enlevaient et coulaient leurs corps pi air émerger plus libres, les bras eroisés et le mollet tendu, devant d'autres lutteurs. Les sauteurs faisaient des sauts très courts d'abord, de plus en plus grands ensuite; les coureurs filaient en éclairs, les cheveux au vent, un brin de sauge aux dents; les pugilistes se donnaient de grands coups de chirotèques ou de cestes, gants de fer ou de cuivre qui enveloppaient leurs poings ; enfin, les lanceurs de disques se faisaient applaudir au jet de morceaux de plomb, qui fendaient l'air en tournoyant et retombaient juste à une limite tracée.
+
+Le Cirque était très attentif, quand Elagabalus descendit, et, distinctement :
+
+--- Citoyens, moi, Divin et Auguste, je convie les lutteurs à se mesurer avec moi !
+
+Dans l'arène, il retroussa sa robe, les bras sur la poitrine. Un lutteur s'avança qui, presque sans effort, roula dans le sable. Puis un second, puis un troisième. Les athlètes facilitaient la victoire à l'Empereur qui bientôt n'eut autour de lui que des corps se tordant dans le soleil, comme un amoncellement de vaincus sur lesquels il posait ses pieds triomphaux.
+
+Mais une furie de lutte s'emparait de lui. Il appela les nains, les défia de le rejoindre. On vit cette chose grotesque d'un Empereur de vingt ans poursuivi éperdument le long de l'immense crête, par des hommes grands comme une cuisse, des hommes qui avaient une grosse tête ballante, des oreilles flottantes et des pieds immenses sous des jambes et un torse raccourcis. Ils couraient et criaient, et quelquefois Elagabalus se retournait et leur envoyait un pied-de-nez formidable, ou bien levait sa jambe, cyniquement. Le Cirque n'applaudissait plus, attendant comme un orage qui allait venir.
+
+Lassés, les nains s'étaient arrêtés, s'avouant vaincus, quand Elagabalus, qui décidément s'amusait, cria de faire entrer les Bêtes. Alors, les nains et les lutteurs se sauvèrent vers les ouvertures de l'arène solidement fermées. Ils essayèrent rie se hisser aux gradins, mais des désignateurs les en empêchèrent. Des cris de tigres et d'éléphants retentissaient, et déjà, vers les carcères, des trompes s'agitaient et des pelages félins ondoyaient, zébrés.
+
+Le Cirque n'osait ni applaudir ni s'indigner, à la fois charmé de ce développement imprévu des Jeux, et mécontent de l'Empereur, qui agissait sans cérémonial aucun, confondait les rangs et surtout ravalait l'Empire dans ces courses et ces luttes ridicules. Mais Atta, malgré que risquant sa tête à rebeller les spectateurs, se leva encore, le poing vers Elagabalus :
+
+--- Le fils d'Avitus, citoyens, veut bien jeter les lutteurs aux Bêtes, mais il se sauvera pour ne pas être dévoré par elles.
+
+Piqué au vif, Elagabalus courut vers Atta. Mais un spectateur cria plus loin :
+
+--- Va embrasser Hiéroklès qui est l'Empereur et non toi, bâtard !
+
+De toutes parts, sur tous les gradins, en bas et en haut, sous le Podium, sous les portiques, d'autres poings se tendaient crispés ; les invectives éclataient, et des sobriquets pleuvaient, honteux. On l'appelait : Elagabalus, Avitus, le Syrien, Sardanapale, l'Impur, le Faux Antonin, la Femme d'Hiéroklès, Bassianus, Varius. Il remonta, menaçant de faire évacuer le Cirque par les soldats du dehors. Atta le prévint :
+
+--- Citoyens ! Allons-nous nous faire égorger par les Prétoriens !
+
+Et il sauta dans l'arène, suivi d'une foule dévalante, au moment où on lâchait les tigres et les éléphants. Mais, là-bas encore, des spectateurs roulèrent en avalanche, faisant fuir les Bêtes qui disparurent, épouvantées de cet océan d'hommes hurlants. Les désignateurs, un moment opposés à cet envahissement, lâchèrent pied ; les lutteurs se mêlèrent à la foule qui gravit le Podium. Alors, ce fut comme un évanouissement blanc et pourpre d'Elagabalus, des femmes et des Vierges, des Consuls, des familiers et des Hommes de Joie. Hiéroklès reçut sur la nuque un plat de main inconnue. Rome s'essayait à mordre à l'Empereur, et c'était là un coup de dent délicieusement donné à même dans sa chair perverse de prostitué et de fou !
+
+Des Prétoriens accoururent du dehors et frappèrent furieusement les assaillants, dont quelques-uns roulèrent, la poitrine ouverte de coups de glaives et de piques. Du sang coulait, des corps s'affaissaient, et le tumulte couvrait tout Elagabalus avait disparu que la bataille se continuait encore entre les soldats et les citoyens.
+
+# 17\.
+
+Sur la place du Grand Cirque, les conducteurs des cerfs et les cerfs mêmes du char d'Elagabalus avaient été massacrés. Mais la cavalerie survenait, foulant des milliers de citoyens, donnant des coups de pique à tous, et déjà les chevaux piétinaient dans du sang. L'Empereur se hissa en tremblant sur un char quelconque ; sa suite l'imita, et le cortège impérial, venu pompeusement au Cirque, se débanda, accablé de pierres et d'immondices que lui jetaient les Romains par-dessus les têtes casquées des Prétoriens. Ce fut, jusqu'au Ccelius, une poursuite folle, un vertige qui poussait Rome aux talons de l'Empereur, à la robe flottante de Scemias et d'Atillia, aux sabots des chevaux heurtant, dans leur galop retentissant, les timons des chars dorés. Cependant, plus ils avançaient, plus les poursuivants s'éparpillaient, coupés par la cavalerie, harcelés par les Prétoriens et les argyraspides, qui leur faisaient face en reculant pas à pas, les trouant de blessés lamentables. Enfin, les portes de bronze des Jardins s'ouvrirent ; les murailles se hérissèrent de soldats armés de pilums, d'archers et de frondeurs s'apprêtant à défendre la Vieille-Espérance, au fond de laquelle disparurent Elagabalus et son cortège, frémissants de cette soudaine colère de Rome.
+
+Les nombreux chrétiens qui suivaient Atta avaient été dispersés sur la place du Grand Cirque par un corps de cataphractaires d'Atillius, l'arc au poing et le glaive aux dents. Ils se reformèrent plus loin, instinctivement, appelés par Atta, qui les voulait entraîner au palais des Caesars, délivrer Mammaea et Alexander, leur apparaître en sauveur, les pousser, à la tête du peuple, contre Elagabalus. Une longue colonne se forma aussitôt et gravit le Palatin, grossie des Romains qui en avaient assez de la Pierre-Noire ou cherchaient à se distraire dans la révolte. Mais des turmes les poursuivirent aussi, commandées par Antiochanus et Aristomaches, par des officiers éprouvés ayant fait toutes les campagnes d'Afrique et d'Asie, qui les frappèrent sauvagement, ne sachant trop ce qu'ils voulaient. Le Palais se hérissait de Prétoriens, également ignorants des intentions des assaillants, les croyant poussés par Elagabalus pour égorger Mammaea, son fils, Mœsa revenue du Cirque, et les personnages graves, Ulpianus et Sabinus, Venuleius et Modestinus, prêts à leur faire un rempart de leur corps.
+
+Les voyant tumultueusement groupés sous le Palais des Caesars, Antiochanus et Aristomaches se dirent que ces hommes agissaient en vertu d'un plan concerté de haut, que c'était là une manœuvre destinée à déguiser les massacres, dont ils avaient également ouï parler. Ils firent alors tourner brusquement la bride à leurs chevaux, qui s'évanouirent en un bruit de galop, vers le Tibre, dont les rives se couvrirent de curieux, vite dispersés.
+
+Cependant Atta, décidément le chef de l'émeute, essayait d'entrer au Palais, toujours gardé par des Prétoriens, et les milliers d'hommes qui l'entouraient menaçaient de gravir les murailles au moyen d'échelles, quand Atillius, s'apercevant qu'Antiochanus et Aristomaches avaient abandonné le Palatin, accourut éperdument. Comme eux, il crut les assaillants poussés par les instigateurs de ce crime dont la menace flottait vaguement sur Rome, et le grand sentiment de pitié pour cette femme et son fils, aussi le grand dégoût, dont Scemias avait été le témoin, de la vie qui ne réalisait aucune de ses espérances, le mordit à nouveau. Av cataphractaires, il essaya de balayer la place. Mais les émeutiers résistèrent. Des hommes tirèrent des poignards et des javelines courtes de leur sein, en frapperont les chevaux ; d'autres jetèrent des pavés à la tête des cavaliers, dont le casque s'aplatit. Encore là le sang coulait, des cadavres jonchaient la voie, des chevaux renversés pantelaienl au soleil, sous le haut regard des Prétoriens du Palais, dont les officiers irrésolus se disaient que, pour se laisser massacrer ainsi, les assaillants ne devaient pas être des émissaires de mort, mais plutôt des amis inconnus acharnés à la délivrance de Mammaea, d'Alexander et de leur parti.
+
+Atta, naturellement poltron, ne se battait pas, mais n'en faisait pas moins œuvre utile. Courant au bas des murailles, il criait à ces officiers :
+
+--- Nous sommes des amis, aidez-nous ; dites à sa Sérénité Mammaea qu'Atta est là.
+
+Et il répétait ces paroles à tous, obstinément, dans le bruit du carnage qui grandissait, sentant bien que si le Palais ne s'ouvrait pas, ils allaient rester sur la voie, sur la place, dans les ruelles du quartier où la bataille se déployait terriblement. Et il se retournait anxieusement, voyant Atillius comme surhumainement enlevé sur son cheval, dans l'éblouissement de son calcochyton ; frappant, lui aussi, semant des morts et des blessés un peu partout. Déjà il se rapprochait quand, des murailles, une voix fit :
+
+--- Tu es Atta ! Dis aux tiens de te suivre. Nous t'ouvrons !
+
+Une porte s'ouvrit plus loin, et Atta entra, suivi de quelques centaines d'hommes. Elle se referma devant les cavaliers qui voulaient y pénétrer.
+
+--- Laissez faire, cria un officier, c'est entendu !
+
+Et il leur fit un signe, comme pour dire que cela était convenu pour les surprendre plus aisément.
+
+Les émeutiers voulurent entrer dans, le Palais même, mais on les contint ; on leur demanda de déléguer seulement quelques-uns des leurs auprès de Mammaea, car ils criaient tous, sur les suggestions d'Atta, qui courait parmi eux :
+
+--- Nous voulons voir sa Sérénité! Nous voulons voir le Caesar !
+
+--- Tu les as ameutés, fit l'officier qui s'était déjà adressé à Atta ; tu sais ce qu'ils veulent, et nous comprenons très bien que tu es à leur tête pour sauver Sa Sérénité, si vraiment elle ait à souffrir d'Antoninus ! Mammaea m'a ordonné de t'ouvrir. Elle te connaît. Va avec quelques-uns des tiens! Atta se détacha, avec quelques chrétiens obstinés, couverts de sang et bleuis de contusions, parmi lesquels Vipsanius, le marchand d'herbes, Ravidus, Cornificius et K ri nias. Il vit les appartements traversés lors de sa première entrevue avec Mammaea, et le même esclave gigantesque qui les fit pénétrer dans la pièce petite, au thronus dont les bras formaient les ailes d'un sphinx d'or. Le Gynécée bruyait de voix de femmes émues, accourues du Cirque ; des hommes fermaient brusquement des portes, et les argyraspides, qui avaient défendu l'Empereur quoique appartenant à Mammaea, rentraient, éclaboussés d'ordures, quelques-uns ensanglantés. Ignorants eux-mêmes des dispositions des nouveaux venus, ils se préparaient à les frapper encore, mais les autres Prétoriens arrêtèrent leurs bras, formidablement.
+
+Mammaea apparut à Atta et à ses compagnons, animée et légèrement tremblante ; elle leur tendit une main et s'assit. Atta présenta Vipsanius, Ravidus, Cornificius, Krinias, tous ceux qui, glorieusement meurtris, l'avaient soutenu :
+
+--- Des chrétiens, Sérénité! des chrétiens, Magnificence! qui ont paré au danger que te tissait Elagabalus ; qui ont écarté avec moi la mort dirigée sur ta tête, et celle de ton Fils, le Caesar. Ecoute, ajouta-t-il, rapidement et s'enivrant lui ordinairement si froid, nous sommes forts à Rome ; sans nous, les Gentils te laissaient égorger par Elagabalus. Accorde-nous non la tolérance, que nous possédons, mais la Prééminence ! Donne la Puissance à l'Agneau, mets Kreistos dans l'Impérialat avec ton fils, et ta race sera féconde dans les siècles des siècles, et elle portera éternellement le Glaive et le Globe du Monde, et elle sera bénie parce qu'elle aura été juste, sainte et grande !
+
+--- Oui ! Oui ! firent les chrétiens, emportés par quence d'Atta qui se transfigurait. Donne la Prééminence à l'Agneau, mets Kreistos dans l'Impérialat avec ton Fils !
+
+Mammnea eut une larme :
+
+--- Je suis avec vous, chrétiens! Je partage vos doctrines : j'aime votre Kreistos ! Mais ne me demandez pas davantage.
+
+Je ne suis point maîtresse d'Empire, et le Fils est bien jeune encore, et l'Impur qui foule Rome peut vous le ravir. Je vous promets, je vous promets de vous aimer, de vous protéger.
+
+Elle se leva, non sans dire encore à Atta :
+
+--- Toutes les fois qu'Atta approchera d'ici, qu'il sache que Mammaea sera heureuse de s'entretenir de Kreistos avec lui.
+
+Elle fit un pas en arrière, vers cette ombre de couloir où brillait le poignard de l'esclave géant. Mais, dans les jardins, hors des murailles, sur la place, dans les voies irradiées autour, on appelait Mammaea et Alexander ; de grandes clameurs roulaient, heureuses de se produire contre Elagabalus. C'était une immense manifestation de tendresse et d'espoir pour l'Empire futur, de haine contre la Pierre-Noire et son Grand-Prêtre, l'Empereur, et ses familiers, et ses Hommes de Joie, et ses Prétoriens dont le glaive et la pique avaient frappé des Romains, une manifestation fusant du Palatin, de PAventin, de l'Esquilin et du Viminal, de l'autre côté du Tibre même, de tous les quartiers populaires essaimes de chrétiens orientaux, ayant foi en Mammaea et Alexander. Les citoyens demandaient à les voir, à les saluer, vivants. échappés de la terrible bataille des rues, pour mieux maudire celui qui n'avait pas craint de verser le sang de tous !
+
+Des officiers envahissaient l'appartement ; d'autres approchaient avec le Cassar arraché des bras de Mcesa, farouchement décidée à s'isoler pour ne pas paraître activer la lutte des deux Sœurs et des deux Cousins, ses Filles et ses Petits-Fils, et les chrétiens se virent confondus dans cette foule armée qui crevait de toutes les portes. Et l'on criait aussi dans le Gynécée et hors du Gynécée, dans les jardins, sous les portiques et les atriums, au fond des péristyles, dans les cubiculas et les salles ornées de candélabres et de statues, dans les vestibules et les cours intérieures, les noms de Mammaea et d'Alexander, frénétiquement répétés.
+
+--- Que vive notre Caesar, trois fois pieux !
+
+--- Que sa Sérénité Mammaea, à la tête de l'Empire, protège l'Enfant !
+
+A nous, à nous, à nous, notre Empereur, le seul que nous reconnaissions !
+
+Entraînée, Mammaea parut avec Alexander sous les portiques, posa une main sur l'épaule du Fils, regarda, frémissante, l'énorme foule qui soulignait Rome de flots vivants. Une immense acclamation retentit : Rome la saluait, et saluait aussi Alexander !
+
+Cependant, pour consacrer l'Empire nouveau, l'armée ne s'ébranlait pas. Hormis les Prétoriens du Palais, dévoués à Mammaea, elle était avec Elagabalus, ou plutôt ne comprenait rien à ce quiproquo terrible qui l'avait fait se battre justement contre Alexander. N'ayant vu dans ces troubles qu'une émeute de peuple dirigée contre l'Empereur et le Coesar, elle avait frappé impitoyablement, soucieuse simplement de l'ordre dans les rues. C'est ce que comprirent Mammaea, les personnages graves qui la conseillaient, et Atta lui-même, bien derrière elle, qui lui dit à demi-voix :
+
+--- Retire-toi ; le peuple romain est maintenant avec toi et l'armée le sera bientôt. Si tu insistais, tout serait perdu.
+
+Elle leva les yeux, vit au fond des Régions, surtout vers le Camp des Prétoriens, des masses noires coupées d'éclairs d'armes, immobiles. La cavalerie remontait le Tibre ; les consuls faisaient occuper les hauteurs de la Ville, et partout la Pierre-Noire, un moment vaincue, aiguisait effroyablement la guerre civile. Mieux valait continuer à détacher le soldat d'Elagabalus, le caresser par la perspective d'un changement d'Empire où il aurait à gagner que le combattre, et ainsi réveiller ses instincts de tueries, ses instincts aveugles qui ne lui feraient reconnaître aucun pouvoir. Mammaea salua, pendant qu'Ulpianus, Sabinus, Modestinus et Venuleius faisaient de grands signes au peuple et qu'Atta criait à des chrétiens :
+
+--- Sa Sérénité est sauvée, et Kreistos a remporté aujourd'hui une grande victoire. C'est assez. Retirons-nous !
+
+Et il s'enfonça dans la foule, suivi des chrétiens qui l'applaudissaient, désormais acquis à ses ambitions, pendant que Mammaea, Alexander et tout un monde officiel rentraient au Palais dans un bruit d'acclamations roulant sur les quais, dans les forums, sur les hauteurs, même sur les terrasses des maisons emplies d'un peuple compact qui, en même temps, maudissait Elagabalus, enfermé à la Vieille-Espérance, muette et sinistre, là-bas, sur le Ccelius !
+
+# 18\.
+
+Dans les sentiers de la Vieille-Espérance, obombrés de feuillages aux trouées lumineuses, sous les murailles continuées en lignes fondues, autour des bassins immobiles dans leur vêtement d'eau squameuse, autour des pavillons et des statues, en un silence farouche, les Prétoriens attendaient le signal d'une lutte qu'Elagabalus hésitait à donner. Ils étaient en ordre de bataille, sur trois lignes : les hastaires à la première, les principes à la seconde, les triaires armés du pilum à la troisième, et divisés obliquement en manipules, avec des vélites dans les intervalles. Les manipules avaient leur enseigne, une lance surmontée d'une ligure de bois et d'un minuscule bouclier d'argent et d'or, orné de la face d'Elagabalus devant laquelle les soldats prêtèrent jadis serment. Dans les fonds flottait le vexillum, l'étendard de la cavalerie en partie rentrée, pièce de drap attachée à une lance, gardée par des antesignaires, et des officiers couraient vers le prostyle où s'élevait une haute pique enroulée d'un drapeau rouge, pendant que des trompettes et des clairons clamaient çà et là.
+
+Les soldats s'impatientaient. Presque tous étrangers, ils se promettaient par avance, en des langages inconnus, le pillage de Rome, car ils ne voulaient pas défendre l'Empereur pour lui-même, l'Empereur qu'au besoin ils eussent rgé, et -mine jadis le pressentit Atillius, s'ils avaient compris la soudaine explosion de la journée, mais bien satisfaire leurs appétits de meurtre et de vol des citoyens riches d'or, de meubles et de vêtements. Dans ces troubles, le peuple et non le Caesar compétiteur s'était seulement présenté à eux, et c'est pourquoi ils n'avaient pas pris parti pour le fils de Mamrmea. D'ailleurs, le bruit d'un assassinat de cette mère et de ce fils n'était pas parvenu jusqu'à eux ; nul doute qu'ils se fussent divisés si réellement ce danger eût été à craindre.
+
+Dans une des salles du palais, Elagabalus s'affalait, et Scemias s'animait, et Paula, indifférente, à peine tremblait de l'émeute qui pouvait la rendre veuve d'Empereur, et Atillia s'inquiétait, et Hiéroklès et Zoticus étaient pâles de cette colère du peuple qui retomberait sûrement sur eux. Les chrysaspides se promenaient devant les tentures et les ouvertures de cubiculas. creusant des perspectives d'appartements de marbre et de porphyre. Elagabalus gardait sa tiara d'or, et sous ses vêtements qui le magnifiaient il déroulait nerveusement un cordon de soie, pendant qu'un poignard d'or reposait, nu, à ses côtés, près d'une fiole de poison. Car l'Empereur préférait se donner lui-même la mort avec des armes prédestinées que la recevoir de quelque main ignoble, tant sa vie extraordinaire devait avoir une extraordinaire fin, sans exemple dans les siècles à venir.
+
+Un bruit de cavalerie leur parvint, avec des éclats de trompettes. Aristomaches et Antiochanus apparurent, l'armure poussiéreuse, les ocres d'airain teintes de sang. Antiochanus avoua qu'il avait quitté le Palais des Caesars assiégé par des bandes prêtes à faire un mauvais parti à Mammsea et à Alexander.
+
+--- Mais je n'ai pas ordonné cela, fit Elagabalus, en regardant anxieusement sa mère. Ni vous deux non plus? ajouta-t-il à Zopiscus et à Hiéroklès.
+
+Et c'était vrai ! L'Empereur était étranger à ce projet de massacre supposé qui avait couru si étrangement depuis quelques jours. Scemias s'éleva :
+
+--- Nul, Fils divin, n'a commandé sans toi, et, je le jure, je n'ai pas mis les mains à ce complot !
+
+Elle était indignée, car si elle désira jadis ce massacre, elle n'y pensait plus depuis qu'Atillius lui en avait montré à la fois l'inutilité et le danger. Cependant, peu craintive, elle s'exalta l'outre les Romains que les troupes du Camp des Prétoriens et celles de la Vieille-Espérance écraseraient au besoin. Chacun parla alors, et ce fut une espèce de conseil de guerre, très agité, où dominait le sentiment de vengeance contre Rome.
+
+--- Ensuite, nous les punirons en les jetant au Tibre, dit Zoticus, qui avait tremblé tout le temps, et à qui Aristomaches lança un regard méprisant !
+
+Il menaçait Mammaea et Alexander. Mais Sœmias se récria :
+
+--- Non ! Non ! Ce sont ces paroles-là qui ont ameuté les Romains. Mammaea est la fille de Mœsa, comme moi, et nous avons même sang, et je ne veux point de guerre fratricide !
+
+Et elle parla moins en politique qu'en femme nerveuse, faisant vibrer les cordes d'un sentiment exacerbé. Au fond, elle n'était point sanguinaire, plutôt jouisseuse et déséquilibrée, indulgente presque toujours; son existence à Rome l'amollissait, alors que c'était le contraire pour Mammaea, aiguisée de courage et d'ambition. Tous, d'autre part, se sentaient énervés et comme fous de la dépense de plaisirs qui ne s'arrêtait plus depuis deux années; la dislocation de l'Empire les trouvait indifférents ou quasi hébétés. Aussi, pendant qu'au dehors les chefs de l'armée songeaient à frapper, eux ne voyaient que jouir, et rire, et s'empiffrer de bonnes choses, et ouïr des musiques et des louanges, et voir des chairs d'hommes et de femmes, et faire l'immense fête de la conquête de l'Occident.
+
+A des moments grossissaient des rumeurs de peuple. Quelqu'un sortait alors, pour revenir précipitamment avec di s nouvelles de l'émeute. On lança le nom d'Atillius.
+
+--- Il a frappé fort et il nous revient, fit-on.
+
+Effectivement, une immense chevauchée s'approchait : les Jardins s'emplissaient de cavalerie, et, en un tumulte d'armes, Atillius accourait. Atillia lui sautait au col, suffoquée, et Sœmas lui faisait, sans souci de sa gloire d'Impératrice et de Clarissime :
+
+--- Tu n'es pas blessé ? Tu n'es pas frappé ? Tu les as dispersés, est-ce pas ?
+
+--- Oui, répondit Atillius soucieux, mais les portes du Palais leur ont été ouvertes, et ceux-là que je combattais offraient l'Empire à Mammsea et à Alexander.
+
+Et il fit un récit rapide de la journée, raconta comment le peuple n'en voulait qu'à Elagabalus, probablement excité qu'il était par des émissaires de Mammaea. Il ajouta :
+
+--- Tu le vois, l'Empire est chancelant ; le Monde s'en détache et la Pierre-Noire retournera à Emesse. Maintenant, l'armée est avec nous, parce qu'elle n'a rien deviné ; demain elle nous abandonnera pour aller à Mammasa.
+
+--- Nous nous ferons des funérailles divines, exclama Elagabalus, qui se redressa frémissant. Il prit son poignard et le fit tragiquement briller :
+
+--- Antoninus ne s'en ira pas sans bruit !
+
+Il se comparait à un comédien, à un athlète ou un coureur qui ne veut pas finir indifféremment. Et toute une heure s'écoula à tergiverser et à s'exalter, pendant que, sur le Palatin, le peuple acclamait Mammsea et Alexander, qui n'avaient qu'un signe à faire pour le lancer contre Elagabalus.
+
+Mais les clameurs se dispersèrent peu à peu. Sœmias, malgré tout vaillante, voulut retourner au Palatin. Comme Hiéroklès, d'une voix traînante, faisait observer que ce retour surexciterait le peuple qui s'apaisait, elle fit :
+
+--- Quoi ! Tu oserais dire que la mère de ton Empereur, affranchi, s'épeurerait de ses ennemis! Va! Tu es digne de porter la robe de ceux qui n'ont pas de sexe.
+
+Paula se proposait de rester, avec le vague désir d'arracher Elagabalus à Hiéroklès et à Zoticus, assis à ses côtés et topotant des doigts les genoux impériaux. Mais Sœmias, la prévenant, l'emmena avec Atillia, en un cortège pompeux de familiers, d'officiers et de soldats, qui débouchèrent sur le prostyle du haut duquel les manipules apparurent, en un éclat d'armes soulevées. D'autres clameurs roulèrent dans la Vieille-Espérance, exhalées par ces légionnaires qui, à l'envi, voulaient reconduire Sœmias, Paula et Atillia, quittes à passer sur le corps du peuple. Et décurions et centurions, chevaliers et tribuns, chefs de la cavalerie et des pédestres, crièrent leur dévouement, offrirent leur glaive et leur bouclier, firent l'effroyable serment de venger Elagabalus et sa mère des injures de Rome ; les triaires et les principes choquaient leurs armes ; les vélites couraient, des éléphants chargés de tours crevaient sous des feuillages d'arbres très haut pleuvant de feuilles élargies ; des catapultes et des balistes se dressaient en échafaudages noirs.
+
+Le lendemain, Atillius sortit le premier, avec des cataphractaires et des Prétoriens, qui frappaient leur bouclier d'un hast, et des signifères portant les enseignes des légions. Scemias, Atillia et Paula. étaient en une litière, et derrière elles c'étaient encore de la cavalerie, des Prétoriens et des signifères. Avant de sortir, un curieux spectacle leur fut offert. Sur le couronnement des murailles, une bande d'hommes blancs, laurés de feuilles, à leur tête une face amaigrie à barbe pointue sans moustaches, psalmodiait une espèce de mélopée, un Poème, peut-être ! sur la Valeur et la Vertu, ce qui fit rire immodérément Atillia :
+
+--- Ah ! celui-là, c'est l'époux d'Habarr'ah, le poète Zopiscus !
+
+C'était bien Zopiscus dirigeant le chœur des Poètes, --- sans les Critiques ! --- qui adressaient en Vers, peut-être, asclépiades ou glyconiques, des encouragements à la Clarissime Mère d'Elagabalus, à son épouse Paula, à Atillia, la Fleur du sexe féminin, vraies déifications du Courage que les siècles à venir vénéreraient triomphalement. Elles leur entendaient lire cela, et même leur arriva 'très clairement, par-dessus le bruit des armes et la chevauchée énorme, cette suprême recommandation de Zopiscus qui, les bras levés sur le bleu du ciel, faisait :
+
+--- Surtout, lisez bien, qu'on vous comprenne bien, que la Clarissime Scemias, que l'épouse de l'Empereur, que l'aimable et vaillante Atillia, la sœur du héros Atillius, vous doivent la vie par la lecture de mes Vers !
+
+Ils descendirent le Cœlius, traversèrent la vallée et défilèrent devant le Colosseum ; du peuple les suivait qui roulait des hauteurs voisines, accourait des voies, et, refoulé vers le Forum, se tassait de toutes parts. Puis, la cavalerie d'Atillius traversa l'Arc de Titus et s'éploya sous la colonne Trajane ; les soldats repoussèrent le peuple vers le Capitole et le Vicus Tuscus, et les Femmes impériales, balancées dans leur litière, purent jouir un instant du triomphe de la Pierre-Noire, dominant tout, effrayant tout.
+
+Mais déjà des exclamations couraient sur leur passage ; de loin des poings se dressaient, le peuple moutonnait. On ne criait plus pour le Caesar, mais seulement contre Elagabalus et Scemias, et tout était à craindre d'une nouvelle émeute, plus terrible que la veille. Des hommes apparaissant du Palatin et de la Subura, des hommes dépenaillés, des esclaves et des affranchis échappés des lupanars du quartier leur jetaient des pierres ; du haut des maisons, des tuiles, des briques et des débris de meubles pauvres tombaient, aplatissant les casques des cavaliers.
+
+Alors, ceux-ci pointèrent terriblement sur eux, frappant sans miséricorde les Romains, qui se redressaient sous les coups, avec des éclairs d'armes à leurs poings, et ce fut bientôt une bataille effroyable qui joncha de cadavres le Forum, du Vélabre à la Tabernole. Et ce n'étaient pas des chrétiens qui se battaient, mais des polythéistes, retrouvant après le carnage de la veille leurs goûts ancestraux de luttes civiles, peut-être même désireux de renverser l'Empire au profit d'une espèce de république idéale qui n'aurait ni Elagabalus, ni Scemias, qui ne se laisserait pas envahir par l'Orient, et jetterait au Tibre la Pierre-Noire et ses sectateurs. Ils étaient comme sous le jet d'une folle de sang, qui les avait armés subitement, et la mort qu'ils donnaient ou qu'ils recevaient était irrémissible, car des deux côtés une haine inextinguible dirigeait les bras.
+
+Aux premières rixes, des troupes avaient quitté la Vieille-Espérance; des éléphants s'en échappaient, balayant des flots humains, enlevant des combattants du bout de leur trompe. Et, du Camp des Prétoriens, par les portes Capène, Salaria et Viminale, d'autres troupes s'élançaient, occupant les voies qui descendaient vers le Forum ; les vélites s'éparpillaient, donnant des coups de javelots à des citoyens qui s'enfuyaient ; des frondeurs faisaient pleuvoir des balles d'argile même sur les quartiers tranquilles, et des cavaliers se déployaient au galop, criant à des groupes de se disperser. Maintenant, chacun sentait que la révolte n'aurait pas de lendemain, matée déjà qu'elle était par cette vigueur de l'armée. D'ailleurs, elle n'avait ni mot d'ordre ni chef; elle se battait, exaspérée, mais abandonnée par Mammsea, qui ne voulait courir l'aventure dune lutte dans laquelle l'armée eût été contre elle, et sans aucun plan de bataille, elle se faisait hacher désespérément. Aussi, la moitié du jour à peine écoulée, elle était vaincue, avec de ses cadavres un peu partout !
+
+La litière gravissait le Palatin, en un vide ouvert par la cavalerie, quand celle-ci reflua en désordre. Une énorme bande coupait la base du mont, arrêtant l'escorte par des petites barricades de pavés ; des chevaux tombèrent, les jarrets brisés ; un centurion reçut un coup de poignard, une pierre atteignit Atillius. Alors une effroyable panique eut lieu. La litière fut renversée. Sœmias et Paula se relevèrent prestement, pendant qu'Atillia était empoignée par une négresse fendant de ses gros bras la foule hurlante.
+
+--- Habarr'ah ! toi ! Emporte-moi, emporte-moi loin d'ici, en un endroit 'où l'on ne tue pas !
+
+--- Chez ton Frère, lui cria Habarr'ah !
+
+C'était l'Ethiopienne, désespérée de n'avoir point été emmenée avec Atillia, car elle demeurait avec Zopiscus, son époux. Aussi, dès les premiers coups, elle s'échappait, anxieuse de la rejoindre, et maintenant, au risque de sa vie, elle était là, souriant bonnement avec ses dents jaunes et une grimace de satisfaction qui faisait branler sa tête aux blancs cheveux crépus. Elle l'emporta dans ses bras, car elle était encore robuste, Habarr'ah ! écarta un cercle de soldats et de cavaliers qui se refermait autour de la litière dans laquelle remontaient Sœmias et Paula. Quelques instants après toutes deux couraient à travers des rues étroites, Atillia riant, folle de ce carnage et de cette équipée.
+
+--- Et mon Frère, demanda-t-elle ? Au moins, il n'a pas été blessé !
+
+--- Oh ! non, répondit Habarr'ah qui, s'apercevant que mieux, attirés pai les vêtements éclatants d'Atillia, les suivaient, jeta sur la jeune fille sa palla bleue, aux constellements d'or comme un fond de ciel étoile.
+
+Evitant les voies centrales, elles filaient très vite devant des maisons aux toits se rejoignant en voûtes de belvédères très hauts, à peine crevés de trous de ciel. Des prostituées y demeuraient qu'elles virent levées à peine, malgré que ce fût plus de la moitié du jour, le corps nu sous un simple vêtement, les seins passant dans un entre-bâillement de subucula salie. Une lanterne rouge pendait au-dessus de l'imposte, et, dans le vestibule éclairé d'un soleil cru, des peintures obscènes apparaissaient à Atillia, qui oubliant déjà, à les regarder, les événements de la matinée et de la veille, se mit à pousser des éclats de rire très forts. Alors d'autres femmes se montrèrent, qui leur adressèrent des injures salaces, avec des gestes découvrant leur ventre blanc.
+
+--- Madeh t'attend, je pense ! faisait Habarr'ah. Tu ne peux retourner au Palatin maintenant. Tu iras demain. Nous sommes plus près de la maison des Carènes que de la Vieille-Espérance, et l'important est de nous sauver au plus vite des coups des Romains.
+
+Déjà le quartier des Carènes émergeait du fond des rues, avec ses monuments et ses maisons aux terrasses jaunes, aux jardins qui faisaient des pans flottants de verdures sur des murailles percées de portes cintrées. Des citoyens couraient se renfermer, des combattants de la matinée racontaient les phases du dernier combat à des groupes grossissant autour d'eux. Parfois, des décuries de soldats dispersaient tout, à coups de piques et de glaives, en une courte rixe à laquelle prenaient part les mêmes combattants.
+
+--- Le pauvre Madeh, tu vas l'amuser du récit de ce qui se passe ! Voilà longtemps que ton Frère le garde là-bas, comme tu sais, et si ce n'était toi et ce Ghéel, il y serait mort d'ennui. A peine si ton Frère l'a emmené à la Vieille-Espérance, tant il craint qu'il ne lui scit enlevé !
+
+Et Habarr'ah rit silencieusement, prenant le bras d'Atillia, qui lui répondait :
+
+--- C'est comme toi, si Zopiscus tétait enlevé ! Aussi le gardes-tu, dis, Habarr'ah !
+
+--- Oh ! moi, fit la négresse, je préfère Atillia, tu le vois bien. J'aurais pu rester avec Zopiscus, à la Vieille-Espérance, puisque mon mariage avec lui m'a affranchie --- car tu as voulu qu'Elagabalus m'affranchît, --- mais je songeais à toi, je tremblais que la bataille ne te fût funeste. Et maintenant que se battent les Romains, que Sœmias soit massacrée, et Paula également, et avec elles l'Empire ! Vois-tu, rien ne dure. Elagabalus s'en ira avec Sœmias, Hiéroklès, Zoticus, Murissimus, Protogenès, Gordius, Zopiscus, toi, moi, Atillius, les soldats, les cavaliers, les Poètes, les Prêtres du Soleil, la Pierre-Noire, les Hommes de Joie qui sont les amants de l'Empereur, et ton Sénat-de-Femmes sera dispersé, et tes bijoux, et tes vêtements, et ton rire, et ta jeunesse, et ta joliesse, et tout! Zopiscus me fait attendre d'ici là, moi, vieille Ethiopienne ; il me chatouille et il couche avec moi, et je le force à me chatouiller pour rire et à coucher avec moi pour prendre du plaisir. Depuis quarante ans je n'en avais point pris. Aussi, quoique robuste jusqu'à présent, je sens que comme tous je m'écervelle, que ma tête tourne et que plus rien ne me fait la vie. Amuse-toi bien, Atillia ! Avant une année nous aurons passé, et vécu, et joui, et ri, et tant pis pour nous si nous avons passé et vécu sans rire et jouir !
+
+Ses paroles étaient saccadées ; ses gros yeux blancs roulaient, sa face noire se plissait. Et elle riait, d'un rire sec qui faisait vibrer ses dents jaunes. Atillia, par contre, ne riait plus, sous le coup des choses funèbres que lui disait Habarr'ah ! Derrière elles, les clameurs s'éteignaient. La cavalerie du primicérius Atillius marchait lentement en une chevauchée dont le bruit leur parvint, calme. Un grand cri éclata encore, avec une fusée d'autres cris, puis tout se réapaisa. Rome était sans doute pacifiée !
+
+# 19\.
+
+--- Ouvre vite, janitor! Quelqu'un a frappé, peut-être Atillia, ou Atillius, ou Ghéel, hier encore ici, qui n'a pas voulu aller au Cirque avec les autres chrétiens, me disait-il !
+
+Le janitor se leva. La porte glissa pesamment, et, dans le trou de lumière qu'elle ouvrit, passèrent vivement Atillia et Habarr'ah. Madeh recula en voyant Atillia voilée de la palla de l'Ethiopienne, et le bas de ses vêtements souillé de poussière et de boue.
+
+--- Tu es venue sans litière, et des hommes insolents ont essayé de te violenter, dit l'affranchi à la jeune fille, qui répondit :
+
+--- On s'est tué tout hier et tout ce matin dans la ville, et avec Habarr'ah je me suis sauvée, je viens te voir, toi qui vis à l'abri de tout.
+
+Et elle lui prit le bras.
+
+--- Et Atillius ?
+
+--- Ah ! mon Frère, avec la cavalerie, a écrasé la rébellion. Tu ne vois donc rien ? Aucun bruit ne t'est parvenu ?
+
+C'était bien vrai. Depuis une année, Madeh avait été tenu à l'écart, sortant peu. emmené rarement à la Vieille-Espérance, presque claustré dans cette maison qui le voyait se traîner de sa chambre à l'atrium. Heureusement. Ghéel et Atillia lui étaient restés : celle-ci emplissant sa vie de rires et de jeux, celui-ci lui parlant du pays syrien qui les vit enfants. Atillius aurait bien voulu lui défendre Atillia, et ses reproches de n'avoir point eu connaissance des visites de sa sœur lui furent d'une singulière amertume ; mais Madeh lui avait répondu avec tant de douleur qu'il s'était tu, lâche comme toujours pour son affranchi.
+
+--- Si tu m'arraches Atillia, avait dit Madeh, que vais-je devenir? Tu me gardes parce que tu m'aimes, mais si tu m'aimes, ne me fais pas mourir d'ennui ! Ghéel est ma joie, mais Atillia est mon ravissement. Avec eux, je puis vivre une éternité ici.
+
+Et Atillius avait fermé les yeux, croyant Madeh trop insexualisé pour prendre feu au contact de sa sœur, encore une enfant, sûr de le retrouver doux, bon et soumis. Cependant, des éclairs de jalousie le prenaient quelquefois, sans qu'il se l'avouât, à voir Madeh qui, depuis quelques mois, semblait prendre une apparence robuste, comme s'il se fût dévêtu de sa féminité au profit d'une masculinité se faisant corps en lui. Et il redoutait le moment où l'adolescent devenant homme tout à coup se révolterait, ou bien le subirait simplement, mais avec l'hypocrisie en plus d'un affranchi qui se rattrape ailleurs. Alors, des images terribles dansaient sous ses yeux, des images de castration de Madeh qu'il songeait à tuer entièrement dans son sexe, pour être sûr désormais de son corps.
+
+C'étaient toujours, dans l'atrium, le paon, le singe et le crocodile qui les virent, Atillia, comme un homme, le bras à la taille de Madeh, lui, entraîné par elle au hasard, très heureux de sa venue, de ses rires et de ses propos. Elle lui retraçait les incidents du Grand Cirque, la fuite d'Elagabalus, les rixes, le sang coulant, les cris des blessés et des mourants, et la vaillance d'Atillius, toujours frappant à la tête de la cavalerie, dont les charges avaient semé Rome de cadavres. Une chose la frappa : les dangers courus par Atillius ne l'émouvaient guère; rien qu'une espèce de curiosité lui fit demander de ses nouvelles. Cela était même si extraordinaire qu'elle ne put s'empêcher de lui dire :
+
+--- Quoi, tu ne l'aimes donc pas, Atillius, que tu n'en es pas ému ?
+
+Il ne répondit pas, évidemment distrait par quelque chose qui se passait en lui, transfigurant sa physionomie, faisant briller son regard et trembler ses mains. Elle le regarda. 11 y a une année, il était aminci, gracile et chancelant, sa face s'amaigrissait, ses yeux avaient de profondes lueurs d'être qui se meurt obscurément. Cette déchéance de santé, dont Ghéel fut frappé, l'avait également secouée. Maintenant, il paraissait vigoureux et fort, quoique l'ancienne nature se trahît encore à l'incertitude de ses démarches et à la douceur de sa voix. Alors, elle retira son bras, marcha à ses côtés, légèrement inquiète.
+
+Du péristyle, ils revinrent au tablinum, errant sans savoir et parlant peu. La chambre de Madeh s'ouvrait, calme, avec son lit aux étoffes pourpres, son ameublement coquet de bronze, d'onyx, d'ivoire et de tuya, d'où des senteurs flottaient. L'affranchi l'y fit entrer.
+
+--- Viens te reposer, lui dit-il, tu me raconteras encore des histoires. J'ai bien besoin que tu m'égaies !
+
+--- Oui ! adolescent, s'exclama-t-elle, essayant de rire, mais vainement.
+
+Madeh lui causait une peur secrète. Quoique impudique d'imagination, quoique impudique, des yeux par tout ce qu'elle avait vu, et des oreilles par tout ce qu'elle avait entendu, elle était encore vierge, et elle se trouvait au seuil d'un engloutissement de sa virginité. Telle lui fut la sensation de Madeh. Un froid aigu la traversa. Mais l'affranchi lui prit la main :
+
+--- Que t'ai-je donc fait? As-tu peur de moi ?
+
+Elle entra, à la fois apoltronnie et chatouillée. Des portes se fermaient autour d'eux ; les esclaves erraient en cansant discrètement ; la voix du janitor répondait à celle d'Habarr'ah. Ce grand silence de la maison fit dire à Atillia :
+
+--- Hé ! quoi ! tout est tranquille ici. Tu n'as donc pas entendu les bruits de la bataille d'hier et de ce matin.
+
+--- Nous sommes au bout de l'Empire, répondit Madeh, mais la chose vaut mieux. Au moins, ici, rien ne nous trouble, et je me suis fait à ce silence, à la condition que tu viennes le rompre de temps en temps.
+
+--- Même avec Ghéel ?
+
+--- Même avec Ghéel !
+
+--- Même avec mon Frère ?
+
+Madeh se tut. Ils se regardèrent bien dans les yeux. Enfin, Atillia :
+
+--- Tiens, tu as les yeux très beaux, mais tu m'effraies. Allons au jardin !
+
+Il l'attira vers le lit, évidemment allumé comme un serpent qui, sortant de sa léthargie hivernale, se désenlace peu à peu à la chaleur. Elle s'assit à ses côtés.
+
+--- Nous sommes bien ici, est-ce pas ?
+
+--- Oui ! Nous sommes bien.
+
+Ils rirent légèrement. Atillia fit tout à coup :
+
+--- Surtout que mon Frère ne croie pas que je le veuille remplacer. Je l'imagine jaloux, Atillius, jaloux de toi qui l'aimes tant.
+
+Madeh se leva :
+
+--- Je m'ennuie bien, que serait-ce si tu n'étais pas là ?
+
+--- Il te resterait... mon Frère !
+
+Elle le poussait à avouer ce qu'il était pour Atillius, très friande de détails, avec des mots salaces sur la bouche. Sa première peur s'envolait ; ses gamineries renaissaient, aussi ses hardiesses de gestes. Elle saisit Madeh à son tour, le força à se rasseoir et s'appuya à lui, tout un côté de son corps sur son corps. Il prit sa mitra qui l'embarrassait, la jeta nerveusement, et secoua sa tête aux cheveux crêpés, parfumés et luisants :
+
+--- Restons ici. Il fait bon ensemble !
+
+Leurs mains erraient, avec des frémissements, le long de leurs jambes, autour de leur taille, faisant monter à leurs reins une chaleur qui les tenait tout trépidants. Celle d'Atillia pesa sur Madeh, qui eut un éblouissement.
+
+--- Non, arrête-toi !
+
+Il la serra fortement. Mais il devait avoir un air étrange, car sa peur de tout à l'heure revint, avec, en plus, la secousse imprimée à ses chairs par ces attouchements. Elle se leva à son tour, désireuse à la fois de partir et de rester.
+
+--- Nous devrions aller au jardin ; je parierais que je cours plus vite que toi !
+
+Et elle disparut dans l'obscurité du tablinum. Madeh la rejoignit. Ils restèrent ainsi quelques minutes, et le frémissement de la stola d'Atillia, et le froissement de la robe flottante de Madeh, touchant à même sa peau, faisaient un bruit sec d'étoffes qui les enivrait. La masculinité de l'affranchi crevait, formidable, lui donnant une exacerbation des nerfs, une chaleur des chairs, et ce n'était plus maintenant le bel et languissant Syrien voué à la Pierre-Noire, mais un homme dont l'entière musculature vibrait au toucher féminin. Encore Atillia s'effraya, car elle ne se sentait point femme, mais plutôt éphèbe ; la passion n'allait pas encore directement à son sexe, à demi développé ; n'effleurait que sa peau en chatouillements délicieux. L'acte, dont elle avait la connaissance purement spirituelle, lui était une violence et une grossièreté ; elle aurait voulu simplement rester là, à se caresser des mains. Aussi, sous le coup de souvenirs lui revenant subitement :
+
+--- Tu me rappelles Sœmias qui, un jour que j'étais nue à me regarder, me caressa comme toi. Restons ici, adolescent, il fait si bon ainsi !
+
+--- Nue ! C'est nue qu'elle te caressait, s'exclama Madeh. Et ses mains soulevèrent la stola, ardentes. Le toucher de ces mains fit pousser un petit cri à Atillia, qui encore échappa. Mais il la poursuivit, et comme ses yeux avaient une sauvagerie, sa voix une raucité inconnues, elle se débattit. Maintenant Madeh, comme sous un coup de sexe furieux, s'était dévêtu, et, tout nu, avec seulement ses sandales attachées très haut, comme celles d'une femme, il lui criait de s'approcher, courant après elle, pendant que les esclaves, apparus un moment au bruit, se sauvaient, et que le janitor, retenu par Habarr'ah. se lamentait :
+
+--- S'il le sait, le primicérius, il me jettera au crocodile. Au moins toi, ne le lui dis pas. Je serais perdu !
+
+Mais Atillia s'esquivail encore, revenant de l'atrium au tablinum, fuyant vers le péristyle, toujours poursuivie pat Madeh, nu. Sans honte, il l'invitait à s'unir à lui. Elle se refusait, affolée de cette poursuite insensée qui les fit traverser toute la maison, jusqu'à l'atrium, où ils revinrent à nouveau, roulant, pantelants, lui sur elle, en une commune nudité.
+
+Sans ménagements, l'acte eut lieu. Et ce fut moins une libre copulation qu'un viol, qui s'acheva dans la douleur d'Atillia, toute saignante, et la satisfaction sauvage de Madeh, allégé du flot de vie de sa récente masculinité !
+
+# 20\.
+
+Un grand tumulte, au dehors, de chevauchée ! Une porte s'ouvrant, et, en un fracas de Prétoriens le portant, Atillius évanoui, une large blessure à la tête, une blessure exprimant ur sang rouge qui a teint son casque et sa cuirasse. Habarr'ah accourt vers Atillia et Madeh, encore couchés dans l'atrium, sous le regard du singe stupéfait, du paon qui éploie sa queue cascadante, et du crocodile, dont la gueule a crevé de l'eau du bassin, inquiètement.
+
+--- Levez-vous, levez-vous, voici Atillius ! Atillia veut se lever, mais Madeh la retient :
+
+--- Non ! Reste. La mort avec toi, par Atillius, plutôt ! Habarr'ah le soulève des bras ; Atillia se dégage, mais pas assez rapidement pour que les Prétoriens emplissant l'atrium ne les voient, lui, nu, elle la gorge défaite, une sandale égarée au loin, et Habarr'ah essayant de les couvrir de sa palla protectrice.
+
+Atillius ouvre les yeux ; il agite les bras, essaie de parler, cherchant à rassembler l'être qu'il y a encore en lui, aux souvenirs montant confusément en apparence de Madeh dont il est amoureux, de Madeh que, pour mieux conserver à sa passion, il a tenu loin de tout, des hommes et des femmes, du Palais des Caesars et des Jardins de la Vieille-Espérance : le gardant en sa maison des Carènes comme une fleur merveilleuse en un vase exquis. Il comprend tout, en une rapide divination qui le fait assister à l'acte sexuel. Il s'élance sur Madeh, son front déchiré de lambeaux de chair qui saignent.
+
+--- Toi, mon Aimé, consacré au Soleil, et que je voulais androgyne.
+
+On le dirait fou. Il rit. A Atillia :
+
+--- Toi, ma Sœur, se donner à celui qui est à moi ! Les deux mains à sa blessure :
+
+--- Pendant que je recevais ce coup, celui de la Mort, peut-être !
+
+Il s'avance plus près de Madeh qui, n'essayant pas de fuir, le regarde très calmement :
+
+--- Tiens ! Vois ! Est-ce toi qui me guériras, maintenant ?
+
+Et il lui montre obstinément sa blessure, reçue dans l'épouvantable dispersion de l'émeute, au moment où Atillia se sauvait avec Habarr'ah, et durant une furieuse charge passant sur des milliers d'hommes qui barraient le Palatin. Atillius a vaincu, mais une pierre, de loin lancée, a écrasé son casque, brisé la jugulaire, mêlé au métal et au cuir des caillots de sang. Alors, des Prétoriens l'ont apporté à sa maison des Carènes.
+
+Il prend les mains de l'affranchi, l'attire à lui, nerveusement :
+
+--- Dis ! dis que tu n'as pas usé d'elle ; dis que tu es resté ce que tu étais !
+
+Madeh restant muet :
+
+--- Tu ne réponds pas. Atillia va me répondre, elle, ma Sœur !
+
+Atillia veut se dérober. Il la saisit par le poignet :
+
+--- Ici ! Ici, à la face de tous, tu vas le dire !
+
+Les Prétoriens essaient de l'entraîner, indulgents pour ce désespoir qu'ils ne comprennent pas, étonnés de cet adolescent nu, de cette jeune fille à la stola écartée, et de cette Ethiopienne qui a tenté de les cacher. Mais il résiste vivement, comme sous un coup de folie terrible qui injecte ses yeux de sang. Alors Atillia, tout émue, l'étreint, sanglotante, secouée, délirante, endolorie :
+
+--- Oui ! Oui ! Pardon, je ne savais pas ! Laisse-le, laisse-le ! C'est ma faute !
+
+Elle lui dit : laisse-le, sachant que son frère a tout pouvoir sur Madeh, qu'il peut le tuer ou le vendre, semer ses os par la Campagne de Rome, ou le jeter au crocodile. Non! Non, cela ne sera pas! Et elle le supplie, et elle l'amollit, lui confessant l'acte en mots entrecoupés, s'en accusant seule, acquittant Madeh de tout. De la pitié et de la terreur s'exhalent d'elle, sur le sein d'Atillius, où du sang de la blessure a coulé.
+
+--- Ah ! tu ne veux pas que je le jette au crocodile, crie-t-il, tu ne veux pas que je le tue ; qu'il s'en aille alors ! Va-t'en, fait-il à Madeh ; va-t'en, que le soleil n'ait plus de prêtre en toi ; va-t'en, que je ne te voie plus ; va-t'en, que ta face ne se présente plus à moi ! Qu'ai-je à faire de toi ? Je suis frappé, à mort peut-être, et je mourrai seul, et tu ne seras pas là, et je ne t'appellerai point mon Aimé, mon Adolescent, mon Androgyne. Va-t'en, et tu riras librement de ton maître, et tu t'amuseras avec des prostituées comme tu t'es amusé d'Atillia. Je ne t'en empêcherai pas. --- Et toi, Sœur, rejoins-le, qu'il vive avec toi. Moi, je ne veux plus vous voir, je veux rester seul, seul ici, à mourir sans vous. L'Empire n'ira pas loin maintenant que je suis frappé et que Madeh m'aura quitté. Et surtout qu'il ne revienne plus, ou je le jetterai de mes deux mains au crocodile, celui qui a souillé ma maison ! Partez, partez ; traversez Rome, toi, la sœur d'Atillius, toi, l'aimé d'Atillius, vivez à Rome ou ailleurs, je ne vous poursuivrai pas, je ne veux plus de vous. Partez ! Partez !
+
+L'affranchi ne remuant pas, il le veut frapper. Mais le janitor pousse Madeh vers sa loge :
+
+--- Viens ! Tu retourneras, sa colère passée. Habille-toi vite et pars. Si tu as à me voir, frappe deux fois, je saurai que c'est toi et je t'ouvrirai, et tu le reverras, et il te pardonnera !
+
+là le janitor qui s'est attaché à Madeh, autant par sympathie que par pitié, lui donne une toge à lui. un bonnet brun, des sandales de bois, un vêtement grossier d'homme du peuple, trop grand pour sa taille. Madeh se revêt lentement, avec le sourd désespoir de n'avoir pas reçu un coup mortel d'Atillius que maintenant Prétoriens et esclaves emportent, évanoui en une crise suprême, pendant que Madeh pousse des cris déchirants :
+
+--- Pourquoi ne m'a-t-il tué? Et cependant je ne suis pas coupable, mais la Nature plutôt. Car, Janitor, j'ai été homme et la femme s'est adressée à mon sexe qu'Atillius croyait neutralisé. Est-ce que je l'ai voulu? Je m'en vais vivre librement et pauvrement, en homme. Adieu ! Adieu, Janitor ! Je vais chez mon frère Ghéel. Adieu ! Adieu ! Atillia m'oubliera et Atillius aussi, si sa blessure n'est pas mortelle. Cela devait arriver, et longtemps je songeai qu'ainsi serait la fin, car ni lui, ni moi, ni elle ne pouvions vivre ainsi. Et maintenant que croule l'Empire que le monde salue un autre Empereur ! Au besoin, je retournerai avec Ghéel, tu sais, au pays syrien ! Je suis libre ! Adieu ! Adieu, Janitor !
+
+Livre Troisième.
+
+# 1\.
+
+Vêtu de la méchante toge du janitor, la tête nue et les sandales de bois aux pieds, Madeh fuyait. Le soir enlinceulait Rome de vapeurs grises. Des lumières piquaient les fenêtres des hautes maisons, illuminaient toute la ville, de l'Aventin au Pincius, et elles l'auraient animée de joie sans les massacres de la journée et de la veille, lugubres à cette heure grâce à des lamentations qui s'élevaient de toutes parts, en fusées traînantes de voix pleurant des morts.
+
+Dans la Tabemole, Madeh enjamba des cadavres abandonnés, dont les toges sanglantes taisaient des haillons rouges. Parfois des cris en sortaient, des cris de blessés, mêlés aux morts, qui imploraient des secours.
+
+Madeh se reconnaissait difficilement dans les quartiers de Rome. Il allait vers le Tibre, et, dans l'espoir que le premier pont le conduirait à la Région Transtévérine, il se dirigeait assez droitement vers le pont Sublicius en coupant la Voie Suburane amorcée à la rue Neuve. Autour de lui des blessés geignaient, des femmes mi-vêtues l'appelaient sous des lueurs rouges de lanternes ; des hommes aussi le hélaient, l'invitant à quelque prostitution. Il marchait très vite, n'écoutant personne, décidé à retrouver Ghéel quand même, se sentant perdu dans cette immense ville qu'il n'avait vue qu'à la gloire des triomphes impériaux.
+
 ...
