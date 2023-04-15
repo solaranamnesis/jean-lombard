@@ -3107,7 +3107,7 @@ là le janitor qui s'est attaché à Madeh, autant par sympathie que par pitié,
 
 --- Pourquoi ne m'a-t-il tué? Et cependant je ne suis pas coupable, mais la Nature plutôt. Car, Janitor, j'ai été homme et la femme s'est adressée à mon sexe qu'Atillius croyait neutralisé. Est-ce que je l'ai voulu? Je m'en vais vivre librement et pauvrement, en homme. Adieu ! Adieu, Janitor ! Je vais chez mon frère Ghéel. Adieu ! Adieu ! Atillia m'oubliera et Atillius aussi, si sa blessure n'est pas mortelle. Cela devait arriver, et longtemps je songeai qu'ainsi serait la fin, car ni lui, ni moi, ni elle ne pouvions vivre ainsi. Et maintenant que croule l'Empire que le monde salue un autre Empereur ! Au besoin, je retournerai avec Ghéel, tu sais, au pays syrien ! Je suis libre ! Adieu ! Adieu, Janitor !
 
-Livre Troisième.
+# Livre Troisième.
 
 # 1\.
 
