@@ -3697,7 +3697,7 @@ Un évanouissement de gens aux talons de l'Empereur, qui disparaissait vers le F
 
 Et il riait, nullement apeuré par ce million de Romains qui lui faisaient cortège, qui essaimaient de toutes les rues et débordaient dans toutes les places. Maintenant, comme si un mot d'ordre avait été donné, des cataphractaires balayaient la foule de coups de piques ; des galops de chevaux passaient en tonnerres grondants : Antiochanus et Aristomaches, sanglés dans leur cuirasse et casqués, emmenaient d'autres turmes qui sauvagement voltaient ; des consuls et des préfets de l'armée dévalaient, avec des manipules, du Camp des Prétoriens. Rome resta calme, les citoyens s'en allèrent, et bientôt l'Empereur et ses compagnons, montés sur un char qui leur était présenté, se dirigèrent vers la Vieille-Espérance, pendant qu'Antiochanus, du haut de sa monture, traînait par la pointe de sa barbe sans moustaches Zopiscus qui hurlait.
 
-. Sœmias, Atillia et Habarr'ah regardèrent cette fuite de peuple et ce triomphe d'Empereur, et Rome leur en parut vile, et l'humanité abaissée, et elles se complurent davantage dans leur rêve qui les faisait flotter hors de tout, comme des êtres sans conscience dans de l'Ether et du Néant.
+Sœmias, Atillia et Habarr'ah regardèrent cette fuite de peuple et ce triomphe d'Empereur, et Rome leur en parut vile, et l'humanité abaissée, et elles se complurent davantage dans leur rêve qui les faisait flotter hors de tout, comme des êtres sans conscience dans de l'Ether et du Néant.
 
 # 11\.
 
