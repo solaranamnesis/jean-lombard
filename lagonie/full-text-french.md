@@ -24,7 +24,7 @@ D'origine ouvrière, Jean Lombard s'était fait tout seul. Je veux constater, en
 
 J'ai été douloureusement étonné que M. Anatole Claveau, un lettré consciencieux et probe, dont l'Ecole Normale n'a pu étouffer la hardiesse et la générosité d'esprit, se soit montré si sévère envers Jean Lombard, sévère au point de nier, sans réserve, son grand et âpre talent.
 
-Qu'il lise donc l'_Agonie!_
+Qu'il lise donc l'_Agonie !_
 
 Il est possible qu'il soit encore choqué par ce style barbare, désordonné, furieusement polychrome, un style forgé de mots techniques, pris aux glossaires de l'antiquité. Mais il reconnaîtra que, malgré ses défauts de goût et son manque de mesure, ce style a pourtant grande allure, des sonorités superbes, un fracas d'armures heurtées, un vertige de chars emportés et comme l'odeur même --- une odeur forte de sang et de fauves --- des âges que Lombard évoque. Il reconnaîtra surtout, la puissance de vision humaine, l'espèce d'hallucination historique avec laquelle ce plébéien a conçu et restitué les civilisations pourries de Rome, sous Héliogabale. Œuvre grandiose et farouche, d'une monotonie splendide... Des théories d'hommes passent et repassent en gestes convulsés d'ovations, en rudes attitudes martiales de défilés de guerre, en troublants cortèges de religions infâmes, en courses haletantes d'émeutes. C'est frénétique et morne, hurlant et triste : tout un peuple d'ombres violemment soulevées hors du néant.
 
