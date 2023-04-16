@@ -1849,7 +1849,7 @@ Il l'entraîna, avec un sourd désir de ne le lâcher que pour un bon repas, pro
 
 --- C'est que Kreistos ne l'a pas voulu, fit Maglo. Et, revenant à sa prophétie :
 
---- Vois-tu, ce Glosia ou ce Glicia a eu l'air tout joyeux de ma prédiction. Ce qui est à étonner est de voir Severa soutenant Elagabalus Antoninus, et Glosia ou Glicia ■ --- comme il te plaira --- demander sa mort. Ils ne s'entendent pas, Glosia ou Glicia et Severa.
+--- Vois-tu, ce Glosia ou ce Glicia a eu l'air tout joyeux de ma prédiction. Ce qui est à étonner est de voir Severa soutenant Elagabalus Antoninus, et Glosia ou Glicia --- comme il te plaira --- demander sa mort. Ils ne s'entendent pas, Glosia ou Glicia et Severa.
 
 --- Ah ! Glicia applaudissait à ta prédiction, exclama Atta, devenu tout singulier.
 
