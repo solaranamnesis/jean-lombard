@@ -2431,7 +2431,7 @@ Un frémissement, puis, en soupirs bruyants :
 
 --- Que Kreistos nous préserve de ce malheur ! Enfin Atta, les quittant :
 
---- Zal habite l'Esquilin ; Zal est votre voisin ! Severa traverse souvent l'Esquilin, qui sait ? à la recherche de Zal ! Ghéel fréquemment va rendre visite à un affranchi du primicérius d'Elagabalus, et je l'ai vu se diriger vers les Carènes aujourd'hui même. Quand la colère de Kreistos fondra sur la Pierre-Noire, nous séparerons l'ivraie du bon grain, n'est-ce pas/ 1 nous retournerons le bon grain à la terre et jetterons l'ivraie au feu, ainsi que le dirait notre Frère M agio, dont les idées sur la substance divine ne sont pas les miennes, ni les vôtres, mais qui a comme nous tous l'horreur du péché que Zal, Severa, Ghéel et les chrétiens orientaux adoreraient volontiers, si nous n'étions là, pour défendre Kreistos, fils de Dieu, Kreistos, trois fois saint !
+--- Zal habite l'Esquilin ; Zal est votre voisin ! Severa traverse souvent l'Esquilin, qui sait ? à la recherche de Zal ! Ghéel fréquemment va rendre visite à un affranchi du primicérius d'Elagabalus, et je l'ai vu se diriger vers les Carènes aujourd'hui même. Quand la colère de Kreistos fondra sur la Pierre-Noire, nous séparerons l'ivraie du bon grain, n'est-ce pas il nous retournerons le bon grain à la terre et jetterons l'ivraie au feu, ainsi que le dirait notre Frère M agio, dont les idées sur la substance divine ne sont pas les miennes, ni les vôtres, mais qui a comme nous tous l'horreur du péché que Zal, Severa, Ghéel et les chrétiens orientaux adoreraient volontiers, si nous n'étions là, pour défendre Kreistos, fils de Dieu, Kreistos, trois fois saint !
 
 # 13\.
 
